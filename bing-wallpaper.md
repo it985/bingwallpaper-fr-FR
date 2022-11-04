@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-04 | [Représentation de déités, tombe de Toutankhamon, musée égyptien du Caire, Egypte  (© Stefan Lippmann/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.Deities_FR-FR5545971994_UHD.jpg) 
+
 2022-11-01 | [Figurines de squelettes pour el Día de los Muertos (le Jour des morts) au Mexique (© Amelia Fuentes Marin/Getty Images)](https://global.bing.com/th?id=OHR.Calacas_FR-FR4752711220_UHD.jpg) 
 
 2022-10-28 | [Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) 
