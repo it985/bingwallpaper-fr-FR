@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-10 | [Formations rocheuses sous un orage dans le parc national des Badlands, Dakota du Sud, États-Unis (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_FR-FR7073005505_UHD.jpg) 
+
 2022-11-09 | [Hérisson dans le Sussex, Angleterre (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_FR-FR6825172865_UHD.jpg) 
 
 2022-11-08 | [Lanternes s’envolant lors du festival Yi Peng à Chiang Mai, Thaïlande (© Suttipong Sutiratanachai/Getty Images)](https://global.bing.com/th?id=OHR.YiPeng_FR-FR6558099006_UHD.jpg) 
