@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-11 | [Wagon dans lequel fut signé l’armistice de 1918, exposé à l’hôtel des Invalides à Paris, de 1921 à 1927 (© Hulton-Deutsch Collection/CORBIS/Corbis via Getty Images)](https://global.bing.com/th?id=OHR.PeaceTreaty_FR-FR7634797039_UHD.jpg) 
+
 2022-11-10 | [Formations rocheuses sous un orage dans le parc national des Badlands, Dakota du Sud, États-Unis (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_FR-FR7073005505_UHD.jpg) 
 
 2022-11-09 | [Hérisson dans le Sussex, Angleterre (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_FR-FR6825172865_UHD.jpg) 
