@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-12 | [Groupe de pygargues à tête blanche près de Haines, Alaska, États-Unis (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_FR-FR7865780973_UHD.jpg) 
+
 2022-11-11 | [Wagon dans lequel fut signé l’armistice de 1918, exposé à l’hôtel des Invalides à Paris, de 1921 à 1927 (© Hulton-Deutsch Collection/CORBIS/Corbis via Getty Images)](https://global.bing.com/th?id=OHR.PeaceTreaty_FR-FR7634797039_UHD.jpg) 
 
 2022-11-10 | [Formations rocheuses sous un orage dans le parc national des Badlands, Dakota du Sud, États-Unis (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_FR-FR7073005505_UHD.jpg) 
