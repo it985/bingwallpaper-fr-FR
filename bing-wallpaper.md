@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-14 | [Ruines du château médiéval construit par l’ordre de Saint-Jean de Jérusalem au-dessus du village de Chorio, Hálki, Grèce (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_FR-FR8476953237_UHD.jpg) 
+
 2022-11-13 | [Vue aérienne de l’Isar se déversant dans le réservoir de Sylvenstein, Isarwinkel, Lenggries, Allemagne (© Martin Siepmann/Offset/Shutterstock)](https://global.bing.com/th?id=OHR.IsarwinkelSylvenstein_FR-FR8154587994_UHD.jpg) 
 
 2022-11-12 | [Groupe de pygargues à tête blanche près de Haines, Alaska, États-Unis (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_FR-FR7865780973_UHD.jpg) 
