@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-18 | [Les portes du palais royal de Fès (Dar El Makhzen), Maroc (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_FR-FR7546688213_UHD.jpg) 
+
 2022-11-17 | [Vignes en automne, Bourgogne (© javarman3/Getty Images)](https://global.bing.com/th?id=OHR.Beaune_FR-FR9149240322_UHD.jpg) 
 
 2022-11-16 | [Habitations troglodytes dans le parc national de Mesa Verde, Colorado, États-Unis (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_FR-FR8868029144_UHD.jpg) 
