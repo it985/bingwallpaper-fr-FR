@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-19 | [La rivière Virgin dans le parc national de Zion, Utah, USA (© Jonathan Ross/Getty)](https://global.bing.com/th?id=OHR.ZNPVR_FR-FR7758680158_UHD.jpg) 
+
 2022-11-18 | [Les portes du palais royal de Fès (Dar El Makhzen), Maroc (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_FR-FR7546688213_UHD.jpg) 
 
 2022-11-17 | [Vignes en automne, Bourgogne (© javarman3/Getty Images)](https://global.bing.com/th?id=OHR.Beaune_FR-FR9149240322_UHD.jpg) 
