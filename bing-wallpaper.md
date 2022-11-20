@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-20 | [Œuvre baptisée “Le monde en construction II”, réalisée par l’artiste franco-suisse Saype et située au siège des Nations Unies à New York (© Valentin Flauraud/Shutterstock)](https://global.bing.com/th?id=OHR.LandartPainting_FR-FR7990989155_UHD.jpg) 
+
 2022-11-19 | [La rivière Virgin dans le parc national de Zion, Utah, USA (© Jonathan Ross/Getty)](https://global.bing.com/th?id=OHR.ZNPVR_FR-FR7758680158_UHD.jpg) 
 
 2022-11-18 | [Les portes du palais royal de Fès (Dar El Makhzen), Maroc (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_FR-FR7546688213_UHD.jpg) 
