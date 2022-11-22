@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-22 | [Renard roux dans la réserve naturelle Amsterdamse Waterleidingduinen aux Pays-Bas (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_FR-FR8378789848_UHD.jpg) 
+
 2022-11-21 | [Stade Ahmad Ben Ali à Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)](https://global.bing.com/th?id=OHR.FIFA2022_FR-FR8208059227_UHD.jpg) 
 
 2022-11-20 | [Œuvre baptisée “Le monde en construction II”, réalisée par l’artiste franco-suisse Saype et située au siège des Nations Unies à New York (© Valentin Flauraud/Shutterstock)](https://global.bing.com/th?id=OHR.LandartPainting_FR-FR7990989155_UHD.jpg) 
