@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-24 | [Vue sur un lac en automne, Tignes, Savoie  (© Yuterick Bell/500px/Getty Images)](https://global.bing.com/th?id=OHR.TignesLake_FR-FR8817232825_UHD.jpg) 
+
 2022-11-23 | [Tournesol (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_FR-FR8558006773_UHD.jpg) 
 
 2022-11-22 | [Renard roux dans la réserve naturelle Amsterdamse Waterleidingduinen aux Pays-Bas (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_FR-FR8378789848_UHD.jpg) 
