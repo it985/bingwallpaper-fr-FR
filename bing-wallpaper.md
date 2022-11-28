@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-28 | [Mars (© NASA/Alamy)](https://global.bing.com/th?id=OHR.RedPlanetDay_FR-FR9981484230_UHD.jpg) 
+
 2022-11-27 | [Feuille de cécropie et pétales en forme de pinces de homard, Mexique (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_FR-FR9701836077_UHD.jpg) 
 
 2022-11-26 | [Un olivier devant le temple de la Concorde en Sicile, Italie (© Alfio Finocchiaro/Shutterstock)](https://global.bing.com/th?id=OHR.OliveTreeDay_FR-FR9359342077_UHD.jpg) 
