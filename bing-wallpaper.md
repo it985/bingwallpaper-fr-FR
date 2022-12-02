@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-02 | [Le delta de la rivière Tlikakila dans le parc national et réserve de Lake Clark, Alaska, États-Unis (© Dawn Wilson Photography/Getty Images)](https://global.bing.com/th?id=OHR.BraidedRiverDelta_FR-FR3105049893_UHD.jpg) 
+
 2022-11-29 | [Grand héron apportant des brindilles à sa compagne pour construire un nid dans les marais de Wakodahatchee, Delray Beach, Floride, États-Unis (© Imagebroker/Alamy)](https://global.bing.com/th?id=OHR.HeronGiving_FR-FR0180452185_UHD.jpg) 
 
 2022-11-28 | [Mars (© NASA/Alamy)](https://global.bing.com/th?id=OHR.RedPlanetDay_FR-FR9981484230_UHD.jpg) 
