@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-08 | [Le vieux Lyon et la cathédrale Saint-Jean illuminés pour la fête des lumières (© Jacques Pierre/Hemis/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.LyonLights_FR-FR4756097857_UHD.jpg) 
+
 2022-12-04 | [Éléphants près du Kilimandjaro, parc national d’Amboseli, Kenya (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_FR-FR3414758965_UHD.jpg) 
 
 2022-12-03 | [Ocean Drive, Miami Beach, Floride, États-Unis (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.MiamiDT_FR-FR3331667702_UHD.jpg) 
