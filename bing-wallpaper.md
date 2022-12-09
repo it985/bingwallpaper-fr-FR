@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-09 | [Maman bœuf musqué et son petit dans le parc national de Dovre-Sunndalsfjella, Norvège (© Robert Haasmann/Minden Pictures)](https://global.bing.com/th?id=OHR.NorwayMuskox_FR-FR4877869181_UHD.jpg) 
+
 2022-12-08 | [Le vieux Lyon et la cathédrale Saint-Jean illuminés pour la fête des lumières (© Jacques Pierre/Hemis/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.LyonLights_FR-FR4756097857_UHD.jpg) 
 
 2022-12-04 | [Éléphants près du Kilimandjaro, parc national d’Amboseli, Kenya (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_FR-FR3414758965_UHD.jpg) 
