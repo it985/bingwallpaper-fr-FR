@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-12 | [Feuilles de poinsettia (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_FR-FR5301769444_UHD.jpg) 
+
 2022-12-11 | [La cathédrale de Florence, Italie (© Alexander Baert/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.FlorenceAerial_FR-FR5252820196_UHD.jpg) 
 
 2022-12-10 | [Salar d’Uyuni en Bolivie (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_FR-FR5020382221_UHD.jpg) 
