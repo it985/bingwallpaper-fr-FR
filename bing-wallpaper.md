@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-14 | [Le lac Agnel et le lac Serrù, parc national du Grand-Paradis, Italie (© agustavop/Getty Images)](https://global.bing.com/th?id=OHR.GranParadiso100th_FR-FR5408904583_UHD.jpg) 
+
 2022-12-13 | [Avoriaz et le Roc d’Enfer en arrière-plan (© Jacques Pierre/Hemis/Almy Stock Photo)](https://global.bing.com/th?id=OHR.MorzineAvoriaz_FR-FR8186282635_UHD.jpg) 
 
 2022-12-12 | [Feuilles de poinsettia (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_FR-FR5301769444_UHD.jpg) 
