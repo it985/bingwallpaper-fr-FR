@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-20 | [Le marché de Noël devant le palais du Belvédère à Vienne, Autriche (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_FR-FR7902038950_UHD.jpg) 
+
 2022-12-19 | [Annecy pendant les fêtes (© Sabine Klein/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.AnnecyXmas_FR-FR7613538506_UHD.jpg) 
 
 2022-12-18 | [Chute de neige sur La Clusaz, Les Alpes, Janvier 2018 (© Christoph Suarez/Biosphoto/Alamy Photostock)](https://global.bing.com/th?id=OHR.SnoeySavoie_FR-FR7385225608_UHD.jpg) 
