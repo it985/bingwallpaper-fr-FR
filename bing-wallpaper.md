@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-21 | [Halo solaire au-dessus du lac d’Antermoia dans les Dolomites, Italie (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_FR-FR8139574564_UHD.jpg) 
+
 2022-12-20 | [Le marché de Noël devant le palais du Belvédère à Vienne, Autriche (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_FR-FR7902038950_UHD.jpg) 
 
 2022-12-19 | [Annecy pendant les fêtes (© Sabine Klein/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.AnnecyXmas_FR-FR7613538506_UHD.jpg) 
