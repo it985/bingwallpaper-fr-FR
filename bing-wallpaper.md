@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-23 | [Manchots papou en Antarctique  (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.GentooGrievances_FR-FR8584925602_UHD.jpg) 
+
 2022-12-22 | [Le sapin des Galeries Lafayette à Paris (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_FR-FR8397010360_UHD.jpg) 
 
 2022-12-21 | [Halo solaire au-dessus du lac d’Antermoia dans les Dolomites, Italie (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_FR-FR8139574564_UHD.jpg) 
