@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-28 | [La Maloja, Suisse (© Roberto Moiola/Getty)](https://global.bing.com/th?id=OHR.ChiesaBianca_FR-FR9548113172_UHD.jpg) 
+
 2022-12-27 | [Lagon Bleu, Grindavík, Islande (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.BlueLagoon_FR-FR9347048363_UHD.jpg) 
 
 2022-12-26 | [Parc près de Beverly, Yorkshire, Angleterre (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_FR-FR9155658622_UHD.jpg) 
