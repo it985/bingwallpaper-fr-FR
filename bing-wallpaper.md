@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-05 | [Festival international de sculpture sur glace et de neige de Harbin, Harbin, Chine (© STR/AFP via Getty Images)](https://global.bing.com/th?id=OHR.HIISSF_FR-FR4821594981_UHD.jpg) 
+
 2023-01-04 | [La Terre vue depuis la Station spatiale internationale (© JSC/NASA)](https://global.bing.com/th?id=OHR.Perihelion_FR-FR4598962992_UHD.jpg) 
 
 2023-01-03 | [Grues du Canada dans le refuge faunique national de Bosque del Apache, Nouveau Mexique, États-Unis (© Jay Goodrich/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SandhillSleeping_FR-FR4420630498_UHD.jpg) 
