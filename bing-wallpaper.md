@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-14 | [Station de ski de Megeve (Megève) en Haute-Savoie dans les Alpes françaises (© Samuel Borges Photography/Shutterstock)](https://global.bing.com/th?id=OHR.CloudBlanket_FR-FR3515958936_UHD.jpg) 
+
 2023-01-13 | [Varech géant du sanctuaire marin des Channels Islands, Californie, USA  (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_FR-FR6010624035_UHD.jpg) 
 
 2023-01-12 | [Rumeli Hisarı sur le Bosphore, Istanbul, Turquie (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_FR-FR6028510337_UHD.jpg) 
