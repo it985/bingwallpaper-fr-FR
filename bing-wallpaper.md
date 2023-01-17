@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-17 | [Réserve naturelle de Muniellos, Asturies, Espagne (© Andres M. Dominguez/Minden Pictures)](https://global.bing.com/th?id=OHR.SessileOaks_FR-FR0501438164_UHD.jpg) 
+
 2023-01-16 | [Parapente Rhone-Alpes, France (© plainpicture/Sabine Bungert)](https://global.bing.com/th?id=OHR.BlueMonday_FR-FR0707574638_UHD.jpg) 
 
 2023-01-15 | [Fleuve Aura à Turku, Finlande (© Jarmo Piironen/Alamy)](https://global.bing.com/th?id=OHR.Turku_FR-FR8085160724_UHD.jpg) 
