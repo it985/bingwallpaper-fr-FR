@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-23 | [Les statues Moaï de l’Île de Pâques, Chili (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_FR-FR7141729211_UHD.jpg) 
+
 2023-01-22 | [Lapin blanc dans le Derbyshire, Angleterre (© Ben Hall/Minden Pictures)](https://global.bing.com/th?id=OHR.YearRabbit_FR-FR6738849556_UHD.jpg) 
 
 2023-01-21 | [Maman kangourou et son bébé  (© Belle Ciezak/Shutterstock)](https://global.bing.com/th?id=OHR.HuggingKanga_FR-FR7558872498_UHD.jpg) 
