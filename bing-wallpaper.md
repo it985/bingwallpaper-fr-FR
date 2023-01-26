@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-26 | [La Porte du Ciel dans le parc national de la montagne Tianmen, Chine (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.HighArchChina_FR-FR8370468752_UHD.jpg) 
+
 2023-01-25 | [Statue de Robert Burns, Aberfeldy, Écosse. (© Dennis Barnes/Getty Images)](https://global.bing.com/th?id=OHR.BirksofAberfeldy_FR-FR8202020141_UHD.jpg) 
 
 2023-01-24 | [Colle Santa Lucia dans les Dolomites, Italie (© mauritius images GmbH/Alamy)](https://global.bing.com/th?id=OHR.ColleSantaLucia_FR-FR7690725851_UHD.jpg) 
