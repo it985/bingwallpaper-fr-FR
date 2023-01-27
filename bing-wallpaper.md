@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-27 | [Mangrove rouge, Parque Guanahacabibes, Cuba (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_FR-FR8902268594_UHD.jpg) 
+
 2023-01-26 | [La Porte du Ciel dans le parc national de la montagne Tianmen, Chine (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.HighArchChina_FR-FR8370468752_UHD.jpg) 
 
 2023-01-25 | [Statue de Robert Burns, Aberfeldy, Écosse. (© Dennis Barnes/Getty Images)](https://global.bing.com/th?id=OHR.BirksofAberfeldy_FR-FR8202020141_UHD.jpg) 
