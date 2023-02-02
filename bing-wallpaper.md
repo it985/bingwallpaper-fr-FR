@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-02 | [Marmottes des Alpes, parc national des Hohe Tauern, Autriche (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_FR-FR1230510971_UHD.jpg) 
+
 2023-02-01 | [Château de Pierrefonds, Haut-de-France, France (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.SunriseCastle_FR-FR3693166026_UHD.jpg) 
 
 2023-01-31 | [Zèbres de Burchell, Réserve de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraTrio_FR-FR2125282944_UHD.jpg) 
