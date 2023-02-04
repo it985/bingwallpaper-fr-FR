@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-04 | [Village de Labro, Province de Rieti, Italie (© Marco Ilari/Shutterstock)](https://global.bing.com/th?id=OHR.MedievalLabro_FR-FR9513902671_UHD.jpg) 
+
 2023-02-03 | [Chateau de Frontenac, Ville de Québec, Canada (© Romiana Lee/Shutterstock)](https://global.bing.com/th?id=OHR.QuebecFrontenac_FR-FR6676029003_UHD.jpg) 
 
 2023-02-02 | [Marmottes des Alpes, parc national des Hohe Tauern, Autriche (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_FR-FR1230510971_UHD.jpg) 
