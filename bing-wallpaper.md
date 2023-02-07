@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-07 | [Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SkiCourch_FR-FR3785057882_UHD.jpg) 
+
 2023-02-06 | [Parc national de Fiordland, Nouvelle-Zélande  (© WitR/Adobe Stock)](https://global.bing.com/th?id=OHR.WaitangiFjordlandNP_FR-FR8657468975_UHD.jpg) 
 
 2023-02-05 | [Papillons Monarques, Pismo Beach, Californie (© Mimi Ditchie/Getty Images)](https://global.bing.com/th?id=OHR.MonarchPismo_FR-FR7613103099_UHD.jpg) 
