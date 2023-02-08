@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-08 | [Aire de repos Ureddplassen sur la route panoramique Helgelandskyste, Norvège (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_FR-FR2245577203_UHD.jpg) 
+
 2023-02-07 | [Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SkiCourch_FR-FR3785057882_UHD.jpg) 
 
 2023-02-06 | [Parc national de Fiordland, Nouvelle-Zélande  (© WitR/Adobe Stock)](https://global.bing.com/th?id=OHR.WaitangiFjordlandNP_FR-FR8657468975_UHD.jpg) 
