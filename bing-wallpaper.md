@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-09 | [Lower Antelope Canyon, Arizona (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_FR-FR2754195868_UHD.jpg) 
+
 2023-02-08 | [Aire de repos Ureddplassen sur la route panoramique Helgelandskyste, Norvège (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_FR-FR2245577203_UHD.jpg) 
 
 2023-02-07 | [Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SkiCourch_FR-FR3785057882_UHD.jpg) 
