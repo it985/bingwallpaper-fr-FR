@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-17 | [Les toits de Paris sous la neige (© Brasil2/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.SnoweyParis_FR-FR2199605880_UHD.jpg) 
+
 2023-02-16 | [Cascade de feu au chute de Horsetail, Yosemite, Califonie, USA (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireFallYosemite_FR-FR0670292909_UHD.jpg) 
 
 2023-02-15 | [Une maman hippopotame et son bébé, parc national de Chobe, Botswana (© jacobeukman/Getty Images)](https://global.bing.com/th?id=OHR.HippoDayChobe_FR-FR0019070028_UHD.jpg) 
