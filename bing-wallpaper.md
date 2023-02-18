@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-18 | [Eben grotte de glace, Michigan, USA (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_FR-FR0816161629_UHD.jpg) 
+
 2023-02-17 | [Les toits de Paris sous la neige (© Brasil2/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.SnoweyParis_FR-FR2199605880_UHD.jpg) 
 
 2023-02-16 | [Cascade de feu au chute de Horsetail, Yosemite, Califonie, USA (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireFallYosemite_FR-FR0670292909_UHD.jpg) 
