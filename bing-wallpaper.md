@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-20 | [Voie lactée au-dessus de Zabriskie Point, Vallée de la Mort, Californie (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_FR-FR1107349717_UHD.jpg) 
+
 2023-02-19 | [Baleines à bosse, Maui, Hawaii, USA (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_FR-FR0915020107_UHD.jpg) 
 
 2023-02-18 | [Eben grotte de glace, Michigan, USA (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_FR-FR0816161629_UHD.jpg) 
