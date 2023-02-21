@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-21 | [Quartier français, Nouvelle-Orléans, Louisiane, Etats-Unis (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_FR-FR1190888271_UHD.jpg) 
+
 2023-02-20 | [Voie lactée au-dessus de Zabriskie Point, Vallée de la Mort, Californie (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_FR-FR1107349717_UHD.jpg) 
 
 2023-02-19 | [Baleines à bosse, Maui, Hawaii, USA (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_FR-FR0915020107_UHD.jpg) 
