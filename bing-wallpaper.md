@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-22 | [Cloche de la paix, sommet de Fichtelberg, Saxe, Allemagne (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_FR-FR6689553051_UHD.jpg) 
+
 2023-02-21 | [Quartier français, Nouvelle-Orléans, Louisiane, Etats-Unis (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_FR-FR1190888271_UHD.jpg) 
 
 2023-02-20 | [Voie lactée au-dessus de Zabriskie Point, Vallée de la Mort, Californie (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_FR-FR1107349717_UHD.jpg) 
