@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-23 | [Paris, France (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_FR-FR1302095709_UHD.jpg) 
+
 2023-02-22 | [Cloche de la paix, sommet de Fichtelberg, Saxe, Allemagne (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_FR-FR6689553051_UHD.jpg) 
 
 2023-02-21 | [Quartier français, Nouvelle-Orléans, Louisiane, Etats-Unis (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_FR-FR1190888271_UHD.jpg) 
