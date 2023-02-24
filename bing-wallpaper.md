@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-24 | [Canard mandarin, Richmond Park, Londres, Royaume-Uni  (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_FR-FR4316388453_UHD.jpg) 
+
 2023-02-23 | [Paris, France (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_FR-FR1302095709_UHD.jpg) 
 
 2023-02-22 | [Cloche de la paix, sommet de Fichtelberg, Saxe, Allemagne (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_FR-FR6689553051_UHD.jpg) 
