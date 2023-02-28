@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-28 | [Atrani, Côte Amalfitaine, Italie (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_FR-FR5793259433_UHD.jpg) 
+
 2023-02-27 | [Ours polaires endormis au Canada (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_FR-FR5552724508_UHD.jpg) 
 
 2023-02-26 | [Reproductions fresques de la Grotte de Chauvet, Ardèche, France (© Abaca Press/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ChauvetCave_FR-FR5872027312_UHD.jpg) 
