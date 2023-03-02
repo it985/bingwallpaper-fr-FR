@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-02 | [Lac Negratin, Grenade, Espagne  (© Andres Martinez Olmedo/Getty Images)](https://global.bing.com/th?id=OHR.NegratinSpain_FR-FR6773222482_UHD.jpg) 
+
 2023-03-01 | [Aventure dans la canopée péruvienne, réserve naturelle de Tambopata, Pérou (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_FR-FR6319298115_UHD.jpg) 
 
 2023-02-28 | [Atrani, Côte Amalfitaine, Italie (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_FR-FR5793259433_UHD.jpg) 
