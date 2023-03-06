@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-06 | [Chevaux islandais dans un champ enneigé, Islande (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_FR-FR4952696183_UHD.jpg) 
+
 2023-03-05 | [Le jardin de Monet à Giverny, France (© Simon Kirwan/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GranmotherDay_FR-FR3744921538_UHD.jpg) 
 
 2023-03-04 | [Route sinueuse vers le Mont Pico, Portugal (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_FR-FR6657975611_UHD.jpg) 
