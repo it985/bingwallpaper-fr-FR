@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-14 | [Parc botanique de Cyherbia, Chypre (© Tpopova/Getty Images)](https://global.bing.com/th?id=OHR.CyprusMaze_FR-FR4848139536_UHD.jpg) 
+
 2023-03-13 | [Atoll de Kauehi, archipel des Tuamotu, Polynésie française (© WaterFrame/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Atoll_FR-FR4756818042_UHD.jpg) 
 
 2023-03-12 | [Théâtre national, Cluj-Napoca, Roumanie (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_FR-FR4478932653_UHD.jpg) 
