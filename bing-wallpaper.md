@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-18 | [Mur peint des écrivains, Lyon, France (© Russ Bishop/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Francophonie_FR-FR5733667216_UHD.jpg) 
+
 2023-03-17 | [Ballyvooney Cove, Copper Coast Geopark, Irlande (© Andrea Pistolesi/Getty Images)](https://global.bing.com/th?id=OHR.BallyvooneyCove_FR-FR5203946108_UHD.jpg) 
 
 2023-03-16 | [Centre de recherche sur le Panda géant de Chengdu, Chine (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)](https://global.bing.com/th?id=OHR.ChengduPanda_FR-FR5295449610_UHD.jpg) 
