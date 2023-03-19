@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-19 | [Chouette effraie dans l'herbe blanche du matin, Angleterre (© Ondrej Prosicky/Getty Images)](https://global.bing.com/th?id=OHR.BarnOwlWinter_FR-FR4890018385_UHD.jpg) 
+
 2023-03-18 | [Mur peint des écrivains, Lyon, France (© Russ Bishop/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Francophonie_FR-FR5733667216_UHD.jpg) 
 
 2023-03-17 | [Ballyvooney Cove, Copper Coast Geopark, Irlande (© Andrea Pistolesi/Getty Images)](https://global.bing.com/th?id=OHR.BallyvooneyCove_FR-FR5203946108_UHD.jpg) 
