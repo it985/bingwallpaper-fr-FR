@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-22 | [Lac Powell, Arizona, États-Unis (© Peter Schaefer/Alamy)](https://global.bing.com/th?id=OHR.LakePowellAerial_FR-FR6087360570_UHD.jpg) 
+
 2023-03-21 | [Craies couleur pastel (© Stephen Shepherd/plainpicture)](https://global.bing.com/th?id=OHR.ColourDay_FR-FR6000896151_UHD.jpg) 
 
 2023-03-20 | [Crocus du printemps (© Raimund Linke/Getty Images)](https://global.bing.com/th?id=OHR.PurpleCrocus_FR-FR5867133801_UHD.jpg) 
