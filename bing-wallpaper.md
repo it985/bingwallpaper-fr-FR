@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-27 | [New York dans les nuages (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.NYCClouds_FR-FR8477676948_UHD.jpg) 
+
 2023-03-26 | [Fleurs sauvages dans le Désert d’Anza Borrego, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)](https://global.bing.com/th?id=OHR.WildAnza_FR-FR7767737739_UHD.jpg) 
 
 2023-03-24 | [Ail des ours en fleur, Parc National de Hainich, Allemagne (© Frank Sommariva/Getty Images)](https://global.bing.com/th?id=OHR.WildGarlic_FR-FR1868078209_UHD.jpg) 
