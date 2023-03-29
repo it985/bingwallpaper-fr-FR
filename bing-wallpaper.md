@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-30 | [Plumes de paon (© Sarayut Thaneerat/Getty Images)](https://global.bing.com/th?id=OHR.PeacockFeathers_FR-FR0185487408_UHD.jpg) 
+
 2023-03-29 | [Deux lamantins, Crystal River, Floride, États-Unis (© Gregory Sweeney/Getty Images)](https://global.bing.com/th?id=OHR.NuzzleManatee_FR-FR9539786613_UHD.jpg) 
 
 2023-03-28 | [Voie lactée sur les Tre Cime di Lavaredo, Italie (© Juan Romero/Cavan Images)](https://global.bing.com/th?id=OHR.MWDolomites_FR-FR9079185650_UHD.jpg) 
