@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-02 | [Coureurs lors du Marathon de Paris, Obélisque de la place de la Concorde, Paris (© REUTERS/Regis Duvignau)](https://global.bing.com/th?id=OHR.ParisRunners_FR-FR1912252678_UHD.jpg) 
+
 2023-04-01 | [Phare du Petit-Minou, Plouzané, France (© RooM the Agency/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.MinouLighthouse_FR-FR1992597632_UHD.jpg) 
 
 2023-03-31 | [Rivière Steyr, Autriche (© guenterguni/Getty Images)](https://global.bing.com/th?id=OHR.SteyrRiver_FR-FR1114341287_UHD.jpg) 
