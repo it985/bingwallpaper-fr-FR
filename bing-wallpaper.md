@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-04 | [Pont romain, Cordoue, Espagne (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.RomanBridge_FR-FR9260461208_UHD.jpg) 
+
 2023-04-03 | [Parc national de Honaunau, Grande Île, Hawaii (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.HonaunauNP_FR-FR9522792056_UHD.jpg) 
 
 2023-04-02 | [Coureurs lors du Marathon de Paris, Obélisque de la place de la Concorde, Paris (© REUTERS/Regis Duvignau)](https://global.bing.com/th?id=OHR.ParisRunners_FR-FR1912252678_UHD.jpg) 
