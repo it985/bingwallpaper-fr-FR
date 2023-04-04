@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-05 | [Petits coqs de bruyère à Kuusamo, Finlande (© Markus Varesvuo/Minden Pictures)](https://global.bing.com/th?id=OHR.BlackGrouseLekking_FR-FR9040681909_UHD.jpg) 
+
 2023-04-04 | [Pont romain, Cordoue, Espagne (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.RomanBridge_FR-FR9260461208_UHD.jpg) 
 
 2023-04-03 | [Parc national de Honaunau, Grande Île, Hawaii (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.HonaunauNP_FR-FR9522792056_UHD.jpg) 
