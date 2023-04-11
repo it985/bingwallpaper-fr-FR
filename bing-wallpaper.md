@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-12 | [Yuhina de Taïwan, Aire panoramique nationale d’Alishan, Taïwan (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_FR-FR2118371198_UHD.jpg) 
+
 2023-04-11 | [Gorge du fleuve Columbia, Oregon, États-Unis (© Chase Dekker Wild-Life Images/Getty Images)](https://global.bing.com/th?id=OHR.MossyGrottoFalls_FR-FR1725636613_UHD.jpg) 
 
 2023-04-10 | [Colibri d'Allen perché sur la plante patte de kangourou rouge (© GypsyPictureShow/Shutterstock)](https://global.bing.com/th?id=OHR.BirdcountAllen_FR-FR2812339598_UHD.jpg) 
