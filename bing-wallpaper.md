@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-13 | [Parc de Hitsujiyama, Saitama, Japon (© Takashi Images/Shutterstock)](https://global.bing.com/th?id=OHR.PhloxSubulata_FR-FR5943147145_UHD.jpg) 
+
 2023-04-12 | [Yuhina de Taïwan, Aire panoramique nationale d’Alishan, Taïwan (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_FR-FR2118371198_UHD.jpg) 
 
 2023-04-11 | [Gorge du fleuve Columbia, Oregon, États-Unis (© Chase Dekker Wild-Life Images/Getty Images)](https://global.bing.com/th?id=OHR.MossyGrottoFalls_FR-FR1725636613_UHD.jpg) 
