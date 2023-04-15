@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-16 | [Festival International de Cerfs-Volants d’Adelaïde, Australie (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_FR-FR4632887565_UHD.jpg) 
+
 2023-04-15 | [‘Together’ de Lorenzo Quinn, Grandes Pyramides de Gizeh, Le Caire, Égypte (© Sima Diab/Getty Images)](https://global.bing.com/th?id=OHR.LorenzoQuinn_FR-FR4354643719_UHD.jpg) 
 
 2023-04-14 | [Étoile de mer rouge, Mer Méditerranée (© Hans Leijnse/Minden Pictures)](https://global.bing.com/th?id=OHR.RedSeaStars_FR-FR2021309863_UHD.jpg) 
