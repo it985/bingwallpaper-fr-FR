@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-19 | [Hugh Coltman sur la scène du Printemps de Bourges (© Guillaume Souvant/AFP via Getty Images)](https://global.bing.com/th?id=OHR.BourgesFestival_FR-FR2048973185_UHD.jpg) 
+
 2023-04-18 | [Machu Picchu, Pérou (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_FR-FR1894243238_UHD.jpg) 
 
 2023-04-17 | [Installation artistique Haïku, Jardins Botaniques Royaux de Kew, Londres (© Guy Bell/Alamy Live News)](https://global.bing.com/th?id=OHR.OneThousandSprings_FR-FR4920641576_UHD.jpg) 
