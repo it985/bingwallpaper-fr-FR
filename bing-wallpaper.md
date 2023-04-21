@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-22 | [Renard gris insulaire, archipel Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_FR-FR1316341314_UHD.jpg) 
+
 2023-04-21 | [Saugues et de sa sculpture en bois de la bête du Gevaudan, Haute-Loire (© Gautier Stephane/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Gevaudan_FR-FR8210514398_UHD.jpg) 
 
 2023-04-20 | [La Terre depuis la Station Spatiale Internationale (© Tim Peake/ESA/NASA via Getty Images)](https://global.bing.com/th?id=OHR.EuropeFromISS_FR-FR7164814523_UHD.jpg) 
