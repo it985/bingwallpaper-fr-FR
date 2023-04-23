@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-24 | [Cave à vin dans la forêt de Bavière, Allemagne (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_FR-FR1735465864_UHD.jpg) 
+
 2023-04-23 | [Bibliothèque municipale de Stuttgart, Allemagne (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_FR-FR1520907172_UHD.jpg) 
 
 2023-04-22 | [Renard gris insulaire, archipel Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_FR-FR1316341314_UHD.jpg) 
