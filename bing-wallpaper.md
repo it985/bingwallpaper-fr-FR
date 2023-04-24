@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-25 | [Manchots Adélie en Antarctique (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_FR-FR1082449253_UHD.jpg) 
+
 2023-04-24 | [Cave à vin dans la forêt de Bavière, Allemagne (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_FR-FR1735465864_UHD.jpg) 
 
 2023-04-23 | [Bibliothèque municipale de Stuttgart, Allemagne (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_FR-FR1520907172_UHD.jpg) 
