@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-28 | [Forêt de séquoias géants de Mariposa Grove, Yosemite, Californie, États-Unis (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_FR-FR4964975063_UHD.jpg) 
+
 2023-04-27 | [Île de South Padre, Texas, États-Unis (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.SouthPadre_FR-FR1930161861_UHD.jpg) 
 
 2023-04-26 | [Grand-duc d’Amérique (© Michael Morse/Getty Images)](https://global.bing.com/th?id=OHR.GHOAudubonDay_FR-FR1843319126_UHD.jpg) 
