@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-29 | [Voie lactée au-dessus du Parc National de Joshua Tree, Californie, États-Unis (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_FR-FR2094769565_UHD.jpg) 
+
 2023-04-28 | [Forêt de séquoias géants de Mariposa Grove, Yosemite, Californie, États-Unis (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_FR-FR4964975063_UHD.jpg) 
 
 2023-04-27 | [Île de South Padre, Texas, États-Unis (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.SouthPadre_FR-FR1930161861_UHD.jpg) 
