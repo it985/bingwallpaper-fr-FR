@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-01 | [Muguet de mai en fleurs (© shapencolour/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.LilyLaborDay_FR-FR3324597226_UHD.jpg) 
+
 2023-04-30 | [Preservation Hall, Nouvelle-Orléans, Louisiane (© Cosmo Condina North America/Alamy)](https://global.bing.com/th?id=OHR.ExteriorPreservationHall_FR-FR8893416037_UHD.jpg) 
 
 2023-04-29 | [Voie lactée au-dessus du Parc National de Joshua Tree, Californie, États-Unis (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_FR-FR2094769565_UHD.jpg) 
