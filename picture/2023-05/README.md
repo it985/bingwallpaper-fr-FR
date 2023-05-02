@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2023-05)
-![](https://global.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg&w=1000)Today: [Lacs Jöriseen, massif de Silvretta, Suisse  (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg)
+![](https://global.bing.com/th?id=OHR.ThreeWildebeest_FR-FR9059959513_UHD.jpg&w=1000)Today: [Gnous dans le Masaï Mara, Kenya (© Matt Polski/Getty Images)](https://global.bing.com/th?id=OHR.ThreeWildebeest_FR-FR9059959513_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://global.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-05-02 [download 4k](https://global.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg)|![](https://global.bing.com/th?id=OHR.LilyLaborDay_FR-FR3324597226_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-05-01 [download 4k](https://global.bing.com/th?id=OHR.LilyLaborDay_FR-FR3324597226_UHD.jpg)|
+|![](https://global.bing.com/th?id=OHR.ThreeWildebeest_FR-FR9059959513_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-05-03 [download 4k](https://global.bing.com/th?id=OHR.ThreeWildebeest_FR-FR9059959513_UHD.jpg)|![](https://global.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-05-02 [download 4k](https://global.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg)|![](https://global.bing.com/th?id=OHR.LilyLaborDay_FR-FR3324597226_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-05-01 [download 4k](https://global.bing.com/th?id=OHR.LilyLaborDay_FR-FR3324597226_UHD.jpg)|

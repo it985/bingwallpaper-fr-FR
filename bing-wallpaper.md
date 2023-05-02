@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-03 | [Gnous dans le Masaï Mara, Kenya (© Matt Polski/Getty Images)](https://global.bing.com/th?id=OHR.ThreeWildebeest_FR-FR9059959513_UHD.jpg) 
+
 2023-05-02 | [Lacs Jöriseen, massif de Silvretta, Suisse  (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_FR-FR8987474545_UHD.jpg) 
 
 2023-05-01 | [Muguet de mai en fleurs (© shapencolour/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.LilyLaborDay_FR-FR3324597226_UHD.jpg) 
