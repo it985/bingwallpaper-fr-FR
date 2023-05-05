@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-06 | [Azalées en fleurs, montagne Hwangmaesan, Corée du Sud (© Stock for you/Shutterstock)](https://global.bing.com/th?id=OHR.HwangmaesanAzaleas_FR-FR3419632015_UHD.jpg) 
+
 2023-05-05 | [Église Nuestra Señora de los Remedios, Puebla, Mexique (© Radius Images/Shutterstock)](https://global.bing.com/th?id=OHR.Popocatepetl_FR-FR3156820655_UHD.jpg) 
 
 2023-05-04 | [Ruines mayas de Tikal, Guatemala (© THP Creative/Getty Images)](https://global.bing.com/th?id=OHR.RebelBase_FR-FR9127535893_UHD.jpg) 
