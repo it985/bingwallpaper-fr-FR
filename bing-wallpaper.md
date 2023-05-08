@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-09 | [Delicate Arch, Parc National des Arches, Utah, États-Unis (© Mark Brodkin Photography/Getty Images)](https://global.bing.com/th?id=OHR.TheChaps_FR-FR4392259575_UHD.jpg) 
+
 2023-05-08 | [Port Vieux-Bassin de Honfleur, Calvados, Normandie (© Francesco Carovillano/SOPA Collection/Shutterstock)](https://global.bing.com/th?id=OHR.Huitmai_FR-FR4054655770_UHD.jpg) 
 
 2023-05-07 | [Bébé phoque, île de Lundy, Angleterre (© Henley Spiers/Minden Pictures)](https://global.bing.com/th?id=OHR.SealLaughing_FR-FR3690246135_UHD.jpg) 
