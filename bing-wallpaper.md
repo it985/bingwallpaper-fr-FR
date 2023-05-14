@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-15 | [Morro Jable et Playa del Matorral, Fuerteventura, Îles Canaries, Espagne (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.MorroJable_FR-FR4892451097_UHD.jpg) 
+
 2023-05-14 | [Procida, Italie (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_FR-FR4386022745_UHD.jpg) 
 
 2023-05-13 | [Réserve naturelle nationale de Sonny Bono Salton Sea, Californie (© David McNew/Getty Images)](https://global.bing.com/th?id=OHR.SonnyBonoPelicans_FR-FR4244110139_UHD.jpg) 
