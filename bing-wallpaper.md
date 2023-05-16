@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-17 | [Plage de Natural Bridges, Santa Cruz, Californie (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CormorantBridge_FR-FR6120224436_UHD.jpg) 
+
 2023-05-16 | [Îles de Lerins, Cannes, Côtes d’Azur (© Hemis/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.FestivalCannes_FR-FR5682247225_UHD.jpg) 
 
 2023-05-15 | [Morro Jable et Playa del Matorral, Fuerteventura, Îles Canaries, Espagne (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.MorroJable_FR-FR4892451097_UHD.jpg) 
