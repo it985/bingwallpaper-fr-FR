@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-19 | [Rhinocéros de Sumatra, parc national de Way Kambas, Indonésie (© Cyril Ruoso/Minden Pictures)](https://global.bing.com/th?id=OHR.SumatranRhino_FR-FR5124240200_UHD.jpg) 
+
 2023-05-18 | [Plaza Carso, musée Soumay, ville de Mexico, Mexique (© Juan Romero/Alamy)](https://global.bing.com/th?id=OHR.MuseoSoumaya_FR-FR5141735106_UHD.jpg) 
 
 2023-05-17 | [Plage de Natural Bridges, Santa Cruz, Californie (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CormorantBridge_FR-FR6120224436_UHD.jpg) 
