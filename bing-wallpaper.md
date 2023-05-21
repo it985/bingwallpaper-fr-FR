@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-22 | [Volcan Arenal, Monteverde, Costa Rica (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_FR-FR6284486896_UHD.jpg) 
+
 2023-05-21 | [Pont d’Arcole sur la Seine, Paris, France (© StockByM/Getty Images)](https://global.bing.com/th?id=OHR.PontdArcole_FR-FR5695342336_UHD.jpg) 
 
 2023-05-20 | [Abeilles européennes à Sheffield, Angleterre  (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_FR-FR5613899340_UHD.jpg) 
