@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-25 | [Le village insulaire de Saksun dans l'Atlantique Nord (© miroslav_1/Getty Images)](https://global.bing.com/th?id=OHR.SaksunFaroe_FR-FR6129573896_UHD.jpg) 
+
 2023-05-24 | [Le Vieux Fort de Corfou (© Netfalls Remy Musser/Shutterstock)](https://global.bing.com/th?id=OHR.OldFortress_FR-FR6019989198_UHD.jpg) 
 
 2023-05-23 | [Tortue à boîte ornée (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.WesternBoxTurtle_FR-FR2003044235_UHD.jpg) 
