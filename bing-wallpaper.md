@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-27 | [La flore de Namibie (© Fotofeeling/DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.AloeDichotomum_FR-FR6374833550_UHD.jpg) 
+
 2023-05-26 | [Wat Sri Sawai, Parc historique de Sukhothai, Thaïlande (© Casper1774 Studio/Shutterstock)](https://global.bing.com/th?id=OHR.WatSriSawai_FR-FR6804204523_UHD.jpg) 
 
 2023-05-25 | [Le village insulaire de Saksun dans l'Atlantique Nord (© miroslav_1/Getty Images)](https://global.bing.com/th?id=OHR.SaksunFaroe_FR-FR6129573896_UHD.jpg) 
