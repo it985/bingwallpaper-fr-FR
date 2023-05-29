@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-30 | [Playa del Amor, Îles Marietas, Puerto Vallarta, Mexique (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_FR-FR6570977941_UHD.jpg) 
+
 2023-05-29 | [Grand Cul-de-Sac Marin, Parc National de Guadeloupe, Antilles  (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.Antilles_FR-FR6506777411_UHD.jpg) 
 
 2023-05-28 | [Coucher de soleil sur le court Philippe Chatrier, Roland-Garros, Paris (© Juergen Hasenkopf/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.FrenchTennis_FR-FR8649321439_UHD.jpg) 
