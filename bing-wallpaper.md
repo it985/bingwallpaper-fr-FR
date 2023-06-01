@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-02 | [Oryx gazelle dans les dunes de sable, Namibie (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_FR-FR1640230400_UHD.jpg) 
+
 2023-06-01 | [Vue aérienne de la Grande Barrière de Corail, Australie (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_FR-FR6730128355_UHD.jpg) 
 
 2023-05-31 | [Petit de loutre de mer, Baie du Prince William, Alaska (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_FR-FR6635303643_UHD.jpg) 
