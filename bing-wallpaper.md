@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-03 | [Sentier Kaibab Sud dans le Parc National du Grand Canyon, Arizona, États-Unis (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_FR-FR1870154872_UHD.jpg) 
+
 2023-06-02 | [Oryx gazelle dans les dunes de sable, Namibie (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_FR-FR1640230400_UHD.jpg) 
 
 2023-06-01 | [Vue aérienne de la Grande Barrière de Corail, Australie (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_FR-FR6730128355_UHD.jpg) 
