@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-04 | [Biche de Virginie et son faon, Montana  (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.OdocoileusVirginianus_FR-FR2394755934_UHD.jpg) 
+
 2023-06-03 | [Sentier Kaibab Sud dans le Parc National du Grand Canyon, Arizona, États-Unis (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_FR-FR1870154872_UHD.jpg) 
 
 2023-06-02 | [Oryx gazelle dans les dunes de sable, Namibie (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_FR-FR1640230400_UHD.jpg) 
