@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-05 | [Œuvre d’art” Priscilla the Parrotfish", Como Park, St. Paul, Minnesota, États-Unis (© Michael Siluk/UCG/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.PlasticParrotfish_FR-FR2781868476_UHD.jpg) 
+
 2023-06-04 | [Biche de Virginie et son faon, Montana  (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.OdocoileusVirginianus_FR-FR2394755934_UHD.jpg) 
 
 2023-06-03 | [Sentier Kaibab Sud dans le Parc National du Grand Canyon, Arizona, États-Unis (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_FR-FR1870154872_UHD.jpg) 
