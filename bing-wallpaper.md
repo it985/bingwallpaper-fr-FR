@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-07 | [Pueblo Bonito, parc du Chaco Culture, Nouveau Mexique, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ChacoCulture_FR-FR3333828021_UHD.jpg) 
+
 2023-06-06 | [Les falaises d'Étretat, Normandie (© MarcelloLand/Getty Images)](https://global.bing.com/th?id=OHR.CliffsEtretat_FR-FR3013201440_UHD.jpg) 
 
 2023-06-05 | [Œuvre d’art” Priscilla the Parrotfish", Como Park, St. Paul, Minnesota, États-Unis (© Michael Siluk/UCG/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.PlasticParrotfish_FR-FR2781868476_UHD.jpg) 
