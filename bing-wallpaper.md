@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-08 | [Baleine à bosse (© Philip Thurston/Getty Images)](https://global.bing.com/th?id=OHR.PlayfulHumpback_FR-FR3535501721_UHD.jpg) 
+
 2023-06-07 | [Pueblo Bonito, parc du Chaco Culture, Nouveau Mexique, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ChacoCulture_FR-FR3333828021_UHD.jpg) 
 
 2023-06-06 | [Les falaises d'Étretat, Normandie (© MarcelloLand/Getty Images)](https://global.bing.com/th?id=OHR.CliffsEtretat_FR-FR3013201440_UHD.jpg) 
