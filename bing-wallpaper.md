@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-09 | [Montgolfières en Cappadoce, Turquie (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.BalloonsTurkey_FR-FR3103288889_UHD.jpg) 
+
 2023-06-08 | [Baleine à bosse (© Philip Thurston/Getty Images)](https://global.bing.com/th?id=OHR.PlayfulHumpback_FR-FR3535501721_UHD.jpg) 
 
 2023-06-07 | [Pueblo Bonito, parc du Chaco Culture, Nouveau Mexique, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ChacoCulture_FR-FR3333828021_UHD.jpg) 
