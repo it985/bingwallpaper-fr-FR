@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-12 | [Figuier de barbarie, Parc National de Big Bend, Texas, États-Unis (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.BigBendAnniv_FR-FR4667898386_UHD.jpg) 
+
 2023-06-11 | [Héron goliath, Parc national Kruger, Afrique du Sud (© Johan Swanepoel/Alamy)](https://global.bing.com/th?id=OHR.GoliathHeron_FR-FR2354863423_UHD.jpg) 
 
 2023-06-10 | [Vue aérienne du circuit Bugatti, Le Mans (© Lou Benoist/AFP via Getty Images)](https://global.bing.com/th?id=OHR.LeMansCentenary_FR-FR2969423081_UHD.jpg) 
