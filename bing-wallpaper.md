@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-13 | [Mousse espagnole le long de la promenade dans le marais d'Okefenokee, Géorgie, États-Unis (© Emmer Photo/Alamy)](https://global.bing.com/th?id=OHR.OkefenokeeSwamp_FR-FR4899553604_UHD.jpg) 
+
 2023-06-12 | [Figuier de barbarie, Parc National de Big Bend, Texas, États-Unis (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.BigBendAnniv_FR-FR4667898386_UHD.jpg) 
 
 2023-06-11 | [Héron goliath, Parc national Kruger, Afrique du Sud (© Johan Swanepoel/Alamy)](https://global.bing.com/th?id=OHR.GoliathHeron_FR-FR2354863423_UHD.jpg) 
