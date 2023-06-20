@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-21 | [Stonehenge, plateau de Salisbury, Wiltshire, Angleterre (© Captain Skyhigh/Getty Images)](https://global.bing.com/th?id=OHR.StonehengeSalisbury_FR-FR7107786254_UHD.jpg) 
+
 2023-06-20 | [Pygargue à tête blanche, forêt nationale de Tongass, Alaska, États-Unis (© Jaynes Gallery/Shutterstock)](https://global.bing.com/th?id=OHR.EagleTree_FR-FR7274315529_UHD.jpg) 
 
 2023-06-19 | [Faon dans une prairie de Normandie (© Gerard Lacz/Minden)](https://global.bing.com/th?id=OHR.Fawn_FR-FR6540960324_UHD.jpg) 
