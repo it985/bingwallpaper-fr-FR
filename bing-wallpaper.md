@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-23 | [Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)](https://global.bing.com/th?id=OHR.SaintMichel_FR-FR7818696393_UHD.jpg) 
+
 2023-06-22 | [Forêt amazonienne, Pérou (© Rhett Ayers Butler/Getty Images)](https://global.bing.com/th?id=OHR.PeruAmazon_FR-FR7280583164_UHD.jpg) 
 
 2023-06-21 | [Stonehenge, plateau de Salisbury, Wiltshire, Angleterre (© Captain Skyhigh/Getty Images)](https://global.bing.com/th?id=OHR.StonehengeSalisbury_FR-FR7107786254_UHD.jpg) 
