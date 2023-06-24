@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-25 | [Khazneh, Pétra, Jordanie (© WitthayaP/Shutterstock)](https://global.bing.com/th?id=OHR.PetraTreasury_FR-FR9534450320_UHD.jpg) 
+
 2023-06-24 | [Baie de Nha Phu, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.NhaTrang_FR-FR8046018187_UHD.jpg) 
 
 2023-06-23 | [Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)](https://global.bing.com/th?id=OHR.SaintMichel_FR-FR7818696393_UHD.jpg) 
