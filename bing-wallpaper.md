@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-28 | [Juin, mois des fiertés (© Arctic-Images/Getty Images)](https://global.bing.com/th?id=OHR.PrideIceland_FR-FR0295897543_UHD.jpg) 
+
 2023-06-27 | [Sedona, Arizona, États-Unis (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_FR-FR0044087630_UHD.jpg) 
 
 2023-06-26 | [Château de Villandry et son jardin, Vallée de la Loire (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_FR-FR9767496581_UHD.jpg) 
