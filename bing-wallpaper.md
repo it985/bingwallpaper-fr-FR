@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-29 | [Îles Banyak, Sumatra, Indonésie (© fbxx/Getty Images)](https://global.bing.com/th?id=OHR.BanyakIslands_FR-FR0543870795_UHD.jpg) 
+
 2023-06-28 | [Juin, mois des fiertés (© Arctic-Images/Getty Images)](https://global.bing.com/th?id=OHR.PrideIceland_FR-FR0295897543_UHD.jpg) 
 
 2023-06-27 | [Sedona, Arizona, États-Unis (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_FR-FR0044087630_UHD.jpg) 
