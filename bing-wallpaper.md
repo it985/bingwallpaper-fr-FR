@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-02 | [Aqueduc de Veluwemeer, Pays-Bas (© Frolova_Elena/Getty Images)](https://global.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg) 
+
 2023-07-01 | [Cyclistes du Tour de France traversant le Pont du Gard, Occitanie (© Gonzalo Fuentes/Reuters)](https://global.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg) 
 
 2023-06-30 | [Grizzlis, parc national et réserve du Lake Clark, Alaska, États-Unis (© Carlos Carreno/Getty Images)](https://global.bing.com/th?id=OHR.ClamBears_FR-FR8687588186_UHD.jpg) 
