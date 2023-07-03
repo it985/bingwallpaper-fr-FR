@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-04 | [Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)](https://global.bing.com/th?id=OHR.CooperChapel_FR-FR0470140705_UHD.jpg) 
+
 2023-07-03 | [Coyote à Banff, Canada (© Harry Collins/Getty Images)](https://global.bing.com/th?id=OHR.CoyoteBanff_FR-FR9574974199_UHD.jpg) 
 
 2023-07-02 | [Aqueduc de Veluwemeer, Pays-Bas (© Frolova_Elena/Getty Images)](https://global.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg) 
