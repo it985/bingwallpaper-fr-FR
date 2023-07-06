@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-07 | [Fèves de cacao d'Ambanja, Madagascar (© pierivb/Getty Images)](https://global.bing.com/th?id=OHR.CocoaPods_FR-FR2382052379_UHD.jpg) 
+
 2023-07-06 | [Gorfous sauteurs, îles Falkland  (© Tony Beck/Getty Images)](https://global.bing.com/th?id=OHR.KissingPenguins_FR-FR5209643436_UHD.jpg) 
 
 2023-07-05 | [Plage de Porto Timoni, Corfou, Grèce (© nantonov/Getty Images)](https://global.bing.com/th?id=OHR.CorfuBeach_FR-FR0913715646_UHD.jpg) 
