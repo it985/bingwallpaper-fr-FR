@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-12 | [Banc de sable dans la réserve naturelle de Nakupenda Beach, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.NakupendaBeach_FR-FR4192491040_UHD.jpg) 
+
 2023-07-11 | [Panorama de la ville de Hong Kong (© leungchopan/Getty Images)](https://global.bing.com/th?id=OHR.WorldPopDay_FR-FR3886647732_UHD.jpg) 
 
 2023-07-10 | [Champ de lavande, Somerset, Angleterre (© Doug Chinnery/Getty Images)](https://global.bing.com/th?id=OHR.SomersetLavender_FR-FR5291650955_UHD.jpg) 
