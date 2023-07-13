@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-14 | [Feu d'artifice du 14 juillet à Carcassonne, Occitanie (© Buena Vista Images/Getty Images)](https://global.bing.com/th?id=OHR.BastilleDay_FR-FR9015357595_UHD.jpg) 
+
 2023-07-13 | [Parc géologique national de Zhangye Danxia, Gansu, Chine (© TONNAJA/Getty Images)](https://global.bing.com/th?id=OHR.ZhangyeGeopark_FR-FR4605249470_UHD.jpg) 
 
 2023-07-12 | [Banc de sable dans la réserve naturelle de Nakupenda Beach, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.NakupendaBeach_FR-FR4192491040_UHD.jpg) 
