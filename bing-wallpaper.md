@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-17 | [Château de Cloughoughter à Lough Oughter, Irlande (© 4H4 PH/Shutterstock)](https://global.bing.com/th?id=OHR.CavanCastle_FR-FR1987421651_UHD.jpg) 
+
 2023-07-16 | [Ruisseau Bear Hole, montagnes Catskill, New York, États-Unis (© GummyBone/Getty Images)](https://global.bing.com/th?id=OHR.BearHoleBrook_FR-FR1214130795_UHD.jpg) 
 
 2023-07-15 | [Le pont d’Avignon et le palais des Papes, Provence Alpes Côte d’Azur (© travelstock44/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.AvignonPope_FR-FR9286778521_UHD.jpg) 
