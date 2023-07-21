@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-22 | [Hamac campé dans un cyprès chauve, Floride, USA (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_FR-FR0846527389_UHD.jpg) 
+
 2023-07-21 | [Pont Storseisundet, route de l'océan Atlantique, Norvège (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_FR-FR0244724672_UHD.jpg) 
 
 2023-07-20 | [La lune vue depuis le vaisseau spatial Orion de la mission Artemis de la NASA (© NASA)](https://global.bing.com/th?id=OHR.MoonDayArtemis_FR-FR9915827128_UHD.jpg) 
