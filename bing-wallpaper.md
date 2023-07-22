@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-23 | [Plantation de thé, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_FR-FR1261818275_UHD.jpg) 
+
 2023-07-22 | [Hamac campé dans un cyprès chauve, Floride, USA (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_FR-FR0846527389_UHD.jpg) 
 
 2023-07-21 | [Pont Storseisundet, route de l'océan Atlantique, Norvège (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_FR-FR0244724672_UHD.jpg) 
