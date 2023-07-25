@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-26 | [Parc de mangrove de l’île Jubail à Abou Dabi, Émirats Arabes Unis (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.MangrovePark_FR-FR4639124985_UHD.jpg) 
+
 2023-07-25 | [Lagune de Torrevieja, Alicante, Espagne (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.LasLagunas_FR-FR3669539536_UHD.jpg) 
 
 2023-07-24 | [Zèbres dans le parc national de Tarangire, Tanzanie (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_FR-FR2999033632_UHD.jpg) 
