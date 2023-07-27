@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-28 | [Îles San Blas, Panama (© bgremler/Shutterstock)](https://global.bing.com/th?id=OHR.SanBlasIslands_FR-FR9472873126_UHD.jpg) 
+
 2023-07-27 | [Arc de Triomphe du Carrousel et Pyramide du Louvre, Paris (© Jon Hicks/Getty Images)](https://global.bing.com/th?id=OHR.ParisLouvre_FR-FR5432483778_UHD.jpg) 
 
 2023-07-26 | [Parc de mangrove de l’île Jubail à Abou Dabi, Émirats Arabes Unis (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.MangrovePark_FR-FR4639124985_UHD.jpg) 
