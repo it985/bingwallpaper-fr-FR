@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-30 | [Terres agricoles dans la région de Palouse, Washington, États-Unis (© EJ-J/Getty Images)](https://global.bing.com/th?id=OHR.PalouseHills_FR-FR4301002543_UHD.jpg) 
+
 2023-07-29 | [Tigre du Bengale, Parc national de Ranthambore, Inde (© Andy Rouse/Minden Pictures)](https://global.bing.com/th?id=OHR.TigerIndia_FR-FR3985203091_UHD.jpg) 
 
 2023-07-28 | [Îles San Blas, Panama (© bgremler/Shutterstock)](https://global.bing.com/th?id=OHR.SanBlasIslands_FR-FR9472873126_UHD.jpg) 
