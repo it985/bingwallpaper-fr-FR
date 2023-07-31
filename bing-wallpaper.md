@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-01 | [Plage de Rondinara et sa réserve naturelle, Bonifacio, Corse (© Hemis/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Corse_FR-FR1073041933_UHD.jpg) 
+
 2023-07-31 | [Rock House, Parc d’État de Hocking Hills, Ohio, États-Unis (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.RockHouse_FR-FR0741762840_UHD.jpg) 
 
 2023-07-30 | [Terres agricoles dans la région de Palouse, Washington, États-Unis (© EJ-J/Getty Images)](https://global.bing.com/th?id=OHR.PalouseHills_FR-FR4301002543_UHD.jpg) 
