@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-03 | [Réserve Naturelle de Zelenci, Slovénie (© Andrey Danilovich/Getty Images)](https://global.bing.com/th?id=OHR.ZelenciSprings_FR-FR0997298659_UHD.jpg) 
+
 2023-08-02 | [Parc national de Capitol Reef, Utah, États-Unis (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CapitolButte_FR-FR6551234797_UHD.jpg) 
 
 2023-08-01 | [Plage de Rondinara et sa réserve naturelle, Bonifacio, Corse (© Hemis/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Corse_FR-FR1073041933_UHD.jpg) 
