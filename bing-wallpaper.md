@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-05 | [Macareux moine, Islande (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_FR-FR7137446812_UHD.jpg) 
+
 2023-08-04 | [Abbaye de Tintern, Pays de Galles (© matthibcn/Getty Images)](https://global.bing.com/th?id=OHR.GothicRuins_FR-FR6737278090_UHD.jpg) 
 
 2023-08-03 | [Réserve Naturelle de Zelenci, Slovénie (© Andrey Danilovich/Getty Images)](https://global.bing.com/th?id=OHR.ZelenciSprings_FR-FR0997298659_UHD.jpg) 
