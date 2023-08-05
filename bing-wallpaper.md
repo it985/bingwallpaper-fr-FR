@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-06 | [Kagami-ike (étang miroir), Nagano, Japon (© Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_FR-FR1287961189_UHD.jpg) 
+
 2023-08-05 | [Macareux moine, Islande (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_FR-FR7137446812_UHD.jpg) 
 
 2023-08-04 | [Abbaye de Tintern, Pays de Galles (© matthibcn/Getty Images)](https://global.bing.com/th?id=OHR.GothicRuins_FR-FR6737278090_UHD.jpg) 
