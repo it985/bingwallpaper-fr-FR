@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-07 | [Phare de Bodie Island, Nags Head, Caroline du Nord, États-Unis (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_FR-FR1484385172_UHD.jpg) 
+
 2023-08-06 | [Kagami-ike (étang miroir), Nagano, Japon (© Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_FR-FR1287961189_UHD.jpg) 
 
 2023-08-05 | [Macareux moine, Islande (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_FR-FR7137446812_UHD.jpg) 
