@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-08 | [Champ de lavande sur le plateau de Valensole au lever du jour, Alpes-de-Haute-Provence (© Francesco Riccardo Iacomino/Getty Images)](https://global.bing.com/th?id=OHR.LavenderFrance_FR-FR1870932466_UHD.jpg) 
+
 2023-08-07 | [Phare de Bodie Island, Nags Head, Caroline du Nord, États-Unis (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_FR-FR1484385172_UHD.jpg) 
 
 2023-08-06 | [Kagami-ike (étang miroir), Nagano, Japon (© Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_FR-FR1287961189_UHD.jpg) 
