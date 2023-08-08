@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-09 | [Œuvres d'art aborigènes, Centre d'art Ngaruwanajirri, Wurrumiyanga, île Bathurst, Australie (© Robert Wyatt/Alamy)](https://global.bing.com/th?id=OHR.BathurstArt_FR-FR2057200035_UHD.jpg) 
+
 2023-08-08 | [Champ de lavande sur le plateau de Valensole au lever du jour, Alpes-de-Haute-Provence (© Francesco Riccardo Iacomino/Getty Images)](https://global.bing.com/th?id=OHR.LavenderFrance_FR-FR1870932466_UHD.jpg) 
 
 2023-08-07 | [Phare de Bodie Island, Nags Head, Caroline du Nord, États-Unis (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_FR-FR1484385172_UHD.jpg) 
