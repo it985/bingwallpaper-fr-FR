@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-12 | [Famille d'éléphants dans le parc national d'Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.ThreeElephants_FR-FR3390909950_UHD.jpg) 
+
 2023-08-11 | [Piscine "Gateway" du parc d’Art Jupiter Artland, Édimbourg, Écosse (© Owen Humphreys/PA Images/Alamy)](https://global.bing.com/th?id=OHR.JupiterArtland_FR-FR3158432015_UHD.jpg) 
 
 2023-08-10 | [Lion au Masaï Mara, Kenya (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WorldLionDay_FR-FR2264324589_UHD.jpg) 
