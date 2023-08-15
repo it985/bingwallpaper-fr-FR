@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-16 | [Pont Seven Mile à Key West, Floride, États-Unis (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_FR-FR4621663062_UHD.jpg) 
+
 2023-08-15 | [Place du IX Avril, Taormina, Sicile, Italie (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_FR-FR4421345533_UHD.jpg) 
 
 2023-08-14 | [Canyon des gorges du Verdon, Provence-Alpes-Côte d’Azur (© luisapuccini/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.VerdonCanyon_FR-FR4159848707_UHD.jpg) 
