@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-17 | [Petit gecko sur une feuille (© Darren Greenwood/Alamy)](https://global.bing.com/th?id=OHR.GeckoLeaf_FR-FR6760407712_UHD.jpg) 
+
 2023-08-16 | [Pont Seven Mile à Key West, Floride, États-Unis (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_FR-FR4621663062_UHD.jpg) 
 
 2023-08-15 | [Place du IX Avril, Taormina, Sicile, Italie (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_FR-FR4421345533_UHD.jpg) 
