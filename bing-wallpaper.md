@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-19 | [Alignements de Carnac, Golfe du Morbihan, France (© Guy Ozenne/Getty Images)](https://global.bing.com/th?id=OHR.Morbihan_FR-FR5973672727_UHD.jpg) 
+
 2023-08-18 | [Montagnes du film “Avatar”, Parc national forestier de Zhangjiajie, Chine (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_FR-FR5022202394_UHD.jpg) 
 
 2023-08-17 | [Petit gecko sur une feuille (© Darren Greenwood/Alamy)](https://global.bing.com/th?id=OHR.GeckoLeaf_FR-FR6760407712_UHD.jpg) 
