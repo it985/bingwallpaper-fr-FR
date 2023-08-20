@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-21 | [Lac Emerald, route du Klondike Sud, Yukon, Canada (© artherng/Getty Images)](https://global.bing.com/th?id=OHR.EmeraldLakeYukon_FR-FR7991878556_UHD.jpg) 
+
 2023-08-20 | [Phare de Start Point, Devon, Angleterre (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_FR-FR6228676554_UHD.jpg) 
 
 2023-08-19 | [Alignements de Carnac, Golfe du Morbihan, France (© Guy Ozenne/Getty Images)](https://global.bing.com/th?id=OHR.Morbihan_FR-FR5973672727_UHD.jpg) 
