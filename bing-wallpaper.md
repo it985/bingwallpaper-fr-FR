@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-27 | [Seongsan Ilchulbong, cône de tuf de l’île de Jeju, Corée du Sud (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_FR-FR0042258249_UHD.jpg) 
+
 2023-08-26 | [Cathédrale et île aux musées, Berlin, Allemagne (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_FR-FR9504691983_UHD.jpg) 
 
 2023-08-25 | [Chutes inférieures, parc national de Yellowstone, Wyoming, États-Unis (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.YellowstoneFalls_FR-FR8862053079_UHD.jpg) 
