@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-29 | [Maison géorgienne, The Circus, Bath, Somerset, Angleterre (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.BathCircus_FR-FR6934984274_UHD.jpg) 
+
 2023-08-28 | [Fort Lovrijenac, Dubrovnik, Croatie (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_FR-FR0527761350_UHD.jpg) 
 
 2023-08-27 | [Seongsan Ilchulbong, cône de tuf de l’île de Jeju, Corée du Sud (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_FR-FR0042258249_UHD.jpg) 
