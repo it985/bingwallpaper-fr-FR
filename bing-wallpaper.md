@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-01 | [Champignon queue de dinde, Brevard, Caroline du Nord, États-Unis (© Bill Gozansky/Alamy)](https://global.bing.com/th?id=OHR.TurkeyTailMush_FR-FR8157290874_UHD.jpg) 
+
 2023-08-31 | [Cactus Saguaro, Ironwood National Monument, Arizona, États-Unis (© Jack Dykinga/Minden Pictures)](https://global.bing.com/th?id=OHR.IronwoodCactus_FR-FR2301952997_UHD.jpg) 
 
 2023-08-30 | [Requin-baleine, récif de Ningaloo, Australie occidentale (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_FR-FR1267107325_UHD.jpg) 
