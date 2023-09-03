@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-04 | [Marais de Bourges, Centre-Val de Loire (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.BourgesMarsh_FR-FR0172809073_UHD.jpg) 
+
 2023-09-03 | [Vue aérienne de Manhattan, New York, États-Unis (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_FR-FR8563550071_UHD.jpg) 
 
 2023-09-02 | [Colibri d'Allen, Santa Cruz, Californie, États-Unis (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_FR-FR8365055526_UHD.jpg) 
