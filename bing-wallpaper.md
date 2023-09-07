@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-08 | [Parc Olympique Lyonnais, Groupama Stadium OL Vallée, Lyon (© dpa picture alliance/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.RugbyWorldCup_FR-FR6347432536_UHD.jpg) 
+
 2023-09-07 | [Chameaux dans le désert, Émirats Arabes Unis (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CamelsAbove_FR-FR9524017477_UHD.jpg) 
 
 2023-09-06 | [Ancien port vénitien, Rethymno, île de Crète, Grèce (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_FR-FR9327699633_UHD.jpg) 
