@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-09 | [Temple Wat Chaiwatthanaram, parc historique d'Ayutthaya, Thaïlande (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_FR-FR4416572016_UHD.jpg) 
+
 2023-09-08 | [Parc Olympique Lyonnais, Groupama Stadium OL Vallée, Lyon (© dpa picture alliance/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.RugbyWorldCup_FR-FR6347432536_UHD.jpg) 
 
 2023-09-07 | [Chameaux dans le désert, Émirats Arabes Unis (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CamelsAbove_FR-FR9524017477_UHD.jpg) 
