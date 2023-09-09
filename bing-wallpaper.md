@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-10 | [Castelmezzano, Italie (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.CastelmazzanoSunrise_FR-FR5171690976_UHD.jpg) 
+
 2023-09-09 | [Temple Wat Chaiwatthanaram, parc historique d'Ayutthaya, Thaïlande (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_FR-FR4416572016_UHD.jpg) 
 
 2023-09-08 | [Parc Olympique Lyonnais, Groupama Stadium OL Vallée, Lyon (© dpa picture alliance/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.RugbyWorldCup_FR-FR6347432536_UHD.jpg) 
