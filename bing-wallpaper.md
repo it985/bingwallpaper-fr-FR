@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-18 | [Voie lactée au-dessus du parc naturel du sud-ouest de l'Alentejo et de la côte vicentine, Portugal (© Daniel Garrido/Getty Images)](https://global.bing.com/th?id=OHR.MilkyWayPortugal_FR-FR9919070514_UHD.jpg) 
+
 2023-09-17 | [Todier de Cuba, Parc national Alejandro de Humboldt, Cuba (© Bruno D'Amicis/Minden Pictures)](https://global.bing.com/th?id=OHR.CubanTody_FR-FR9694698532_UHD.jpg) 
 
 2023-09-16 | [Toile de fond historique dans une tente lors de l'Oktoberfest à Theresienwiese, Munich, Allemagne (© Peter Kneffel/picture alliance via Getty Images)](https://global.bing.com/th?id=OHR.OktoberfestWorkers_FR-FR0137764412_UHD.jpg) 
