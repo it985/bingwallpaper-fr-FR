@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-20 | [Aqueduc de style romain, parc d'Arkadia, Pologne (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_FR-FR0610360339_UHD.jpg) 
+
 2023-09-19 | [Col de Splügen, Grisons, Suisse (© Roberto Moiola/Getty Images)](https://global.bing.com/th?id=OHR.SplugenPass_FR-FR8357846170_UHD.jpg) 
 
 2023-09-18 | [Voie lactée au-dessus du parc naturel du sud-ouest de l'Alentejo et de la côte vicentine, Portugal (© Daniel Garrido/Getty Images)](https://global.bing.com/th?id=OHR.MilkyWayPortugal_FR-FR9919070514_UHD.jpg) 
