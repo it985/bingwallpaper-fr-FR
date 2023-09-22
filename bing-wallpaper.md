@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-23 | [Parc ostréicole à La Faute-sur-Mer, Pointe d'Arcay France, Vendée (© LEROY Francis/hemis.fr)](https://global.bing.com/th?id=OHR.GastronomyDay_FR-FR7756533791_UHD.jpg) 
+
 2023-09-22 | [Rhinocéros blancs du Sud, réserve de Shamwari, Afrique du Sud  (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_FR-FR1116105589_UHD.jpg) 
 
 2023-09-21 | [Centre Nobel de la Paix, Oslo, Norvège (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_FR-FR0963742399_UHD.jpg) 
