@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-24 | [Coucher de soleil sur la tour Génoise de la Parata et les Iles Sanguinaires, Ajaccio, Corse (© Jon Ingall/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GenoeseTower_FR-FR7845957372_UHD.jpg) 
+
 2023-09-23 | [Parc ostréicole à La Faute-sur-Mer, Pointe d'Arcay France, Vendée (© LEROY Francis/hemis.fr)](https://global.bing.com/th?id=OHR.GastronomyDay_FR-FR7756533791_UHD.jpg) 
 
 2023-09-22 | [Rhinocéros blancs du Sud, réserve de Shamwari, Afrique du Sud  (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_FR-FR1116105589_UHD.jpg) 
