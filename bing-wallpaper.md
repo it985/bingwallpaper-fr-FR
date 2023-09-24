@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-25 | [Loutre de mer à Bartlett Cove, parc national et réserve de Glacier Bay, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_FR-FR3887567269_UHD.jpg) 
+
 2023-09-24 | [Coucher de soleil sur la tour Génoise de la Parata et les Iles Sanguinaires, Ajaccio, Corse (© Jon Ingall/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GenoeseTower_FR-FR7845957372_UHD.jpg) 
 
 2023-09-23 | [Parc ostréicole à La Faute-sur-Mer, Pointe d'Arcay France, Vendée (© LEROY Francis/hemis.fr)](https://global.bing.com/th?id=OHR.GastronomyDay_FR-FR7756533791_UHD.jpg) 
