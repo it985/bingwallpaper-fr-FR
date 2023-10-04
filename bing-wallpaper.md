@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-05 | [Manchots papous, Antarctique (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_FR-FR8699186535_UHD.jpg) 
+
 2023-10-04 | [Formation de jeunes étoiles dans la nébuleuse de la Tarentule, télescope spatial James Webb (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_FR-FR8497599803_UHD.jpg) 
 
 2023-10-03 | [Plage de Whitehaven, îles Whitsunday, Queensland, Australie (© Coral Brunner/Shutterstock)](https://global.bing.com/th?id=OHR.WhitsundaySwirl_FR-FR8218206764_UHD.jpg) 
