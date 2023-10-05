@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-06 | [Parc d'État de la cascade de Taughannock à Trumansburg, dans l'État de New York, aux États-Unis (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_FR-FR9642838180_UHD.jpg) 
+
 2023-10-05 | [Manchots papous, Antarctique (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_FR-FR8699186535_UHD.jpg) 
 
 2023-10-04 | [Formation de jeunes étoiles dans la nébuleuse de la Tarentule, télescope spatial James Webb (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_FR-FR8497599803_UHD.jpg) 
