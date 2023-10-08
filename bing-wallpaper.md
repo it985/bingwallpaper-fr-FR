@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-09 | [Pétroglyphes du peuple précolombien Fremont, Dinosaur National Monument, Jensen, Utah, États-Unis (© Dan Leeth/Alamy)](https://global.bing.com/th?id=OHR.FremontPetroglyph_FR-FR0691774760_UHD.jpg) 
+
 2023-10-08 | [Pieuvre noix de coco dans une coquille de palourde géante, Mer de Célèbes, Indonésie (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_FR-FR0140007063_UHD.jpg) 
 
 2023-10-07 | [Ours grizzly pêchant le saumon dans les chutes de Brooks, parc national de Katmai, Alaska, États-Unis (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_FR-FR9827995252_UHD.jpg) 
