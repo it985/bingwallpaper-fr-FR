@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-12 | [Vieille grange et champ de colza, région de Palouse, Idaho, États-Unis (© Terry Eggers/Getty Images)](https://global.bing.com/th?id=OHR.IdahoBarn_FR-FR2310070103_UHD.jpg) 
+
 2023-10-11 | [Collines de Painted Hills dans le bassin de la John Day River National Monut, Oregon, États-Unis (© Ben Herndon/Tandem Stills + Motion)men](https://global.bing.com/th?id=OHR.JohnDayFossil_FR-FR1967502436_UHD.jpg) 
 
 2023-10-10 | [Basilique du Sacré Cœur de Montmartre (© Tuul & Bruno Morandi)](https://global.bing.com/th?id=OHR.MontmartreHarvest_FR-FR1431017113_UHD.jpg) 
