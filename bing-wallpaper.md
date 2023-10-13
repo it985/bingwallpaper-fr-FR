@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-14 | [Éclipse solaire annulaire "anneau de feu", Doha, Qatar (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_FR-FR2817634134_UHD.jpg) 
+
 2023-10-13 | [Château du Haut-Koenigsbourg au lever du soleil, à Orschwiller, Alsace, Grand Est (© PATRICK HERTZOG/AFP via Getty Images)](https://global.bing.com/th?id=OHR.KoenigsbourgCastle_FR-FR2607573808_UHD.jpg) 
 
 2023-10-12 | [Vieille grange et champ de colza, région de Palouse, Idaho, États-Unis (© Terry Eggers/Getty Images)](https://global.bing.com/th?id=OHR.IdahoBarn_FR-FR2310070103_UHD.jpg) 
