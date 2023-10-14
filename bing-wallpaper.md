@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-15 | [Hérisson européen se réfugiant dans l'écorce d'un arbre, Sussex, Angleterre (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_FR-FR3040407660_UHD.jpg) 
+
 2023-10-14 | [Éclipse solaire annulaire "anneau de feu", Doha, Qatar (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_FR-FR2817634134_UHD.jpg) 
 
 2023-10-13 | [Château du Haut-Koenigsbourg au lever du soleil, à Orschwiller, Alsace, Grand Est (© PATRICK HERTZOG/AFP via Getty Images)](https://global.bing.com/th?id=OHR.KoenigsbourgCastle_FR-FR2607573808_UHD.jpg) 
