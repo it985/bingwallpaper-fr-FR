@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-16 | [Mélèzes aux couleurs de l’automne et le Mont Prusik, région Lacs Enchantés, Washington, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenEnchantments_FR-FR3216426805_UHD.jpg) 
+
 2023-10-15 | [Hérisson européen se réfugiant dans l'écorce d'un arbre, Sussex, Angleterre (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_FR-FR3040407660_UHD.jpg) 
 
 2023-10-14 | [Éclipse solaire annulaire "anneau de feu", Doha, Qatar (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_FR-FR2817634134_UHD.jpg) 
