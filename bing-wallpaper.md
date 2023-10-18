@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-19 | [Récolte de nénuphars, delta du Mékong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://global.bing.com/th?id=OHR.WaterLilyVietnam_FR-FR4028211230_UHD.jpg) 
+
 2023-10-18 | [Refuge faunique national de Kodiak, Alaska, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.KodiakAlaska_FR-FR3778236447_UHD.jpg) 
 
 2023-10-17 | [Textes anciens gravés originaires de Persépolis, Iran (© George Hall/Alamy)](https://global.bing.com/th?id=OHR.SpreadsheetDay_FR-FR3416887785_UHD.jpg) 
