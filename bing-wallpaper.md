@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-26 | [Feuillage d'automne dans le parc du château de Schönbrunn, Vienne, Autriche (© rusm/Getty Images)](https://global.bing.com/th?id=OHR.ViennaAutumn_FR-FR6349704805_UHD.jpg) 
+
 2023-10-25 | [Les peupliers deltoïdes dans le monument national de Grand Staircase-Escalante, Utah, États-Unis (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_FR-FR6173079763_UHD.jpg) 
 
 2023-10-24 | [Château de Füzér dans les montagnes de Zemplén, Hongrie (© ZGPhotography/Alamy)](https://global.bing.com/th?id=OHR.FuzerCastle_FR-FR5745406431_UHD.jpg) 
