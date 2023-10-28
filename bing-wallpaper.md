@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-29 | [L'Open 60 Safran, Transat Jacques Vabre 2011, skipper Marc Guillemot co/skipper Yann Eliès, Bretagne (© Christophe Launay/Aurora Photos/Cavan Images/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TransatJacquesVabre_FR-FR7973577360_UHD.jpg) 
+
 2023-10-28 | [Moulins à vent dans la région de Castille-La Manche, Espagne (© Getty Images)](https://global.bing.com/th?id=OHR.FiveWinds_FR-FR7441990953_UHD.jpg) 
 
 2023-10-27 | [Pont de sligachan, île de Skye, Écosse (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.OldBridgeSkye_FR-FR6630740489_UHD.jpg) 
