@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-03 | [Méduse dorée, au large de la côte de Carmel, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SeaNettles_FR-FR1930530025_UHD.jpg) 
+
 2023-11-02 | [Salines dans le bassin Badwater, parc national de la Vallée de la Mort, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DeathValleySalt_FR-FR9000237467_UHD.jpg) 
 
 2023-11-01 | [Château de Haut-Barr, Pays de Saverne, Vosges, France (© Andrea Pistolesi/Getty Images)](https://global.bing.com/th?id=OHR.HautBarr_FR-FR8742870130_UHD.jpg) 
