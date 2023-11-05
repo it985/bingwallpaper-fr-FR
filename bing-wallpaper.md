@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-05 | [Formation de quartzite, Playa del Silencio, Espagne (© Jean-Philippe Delobelle/Minden Pictures)](https://global.bing.com/th?id=OHR.SilencioSpain_FR-FR1881358209_UHD.jpg) 
+
 2023-11-04 | [Bison d'Amérique, parc national de Yellowstone, Wyoming, États-Unis (© Gary Gray/Getty Images)](https://global.bing.com/th?id=OHR.BisonSnow_FR-FR2161630448_UHD.jpg) 
 
 2023-11-03 | [Méduse dorée, au large de la côte de Carmel, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SeaNettles_FR-FR1930530025_UHD.jpg) 
