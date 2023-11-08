@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-08 | [Lamantins des Caraïbes, femelle avec son bébé, Crystal River, Three Sisters Spring, Floride, États-Unis (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ManateeMama_FR-FR2612350348_UHD.jpg) 
+
 2023-11-07 | [Lacs de Kirkilai et tour de guet, parc régional de Biržai, Lituanie (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.KirkilaiTower_FR-FR2337434302_UHD.jpg) 
 
 2023-11-06 | [Lac Pehoé, Parc National Torres del Paine, Chili (© OST/Getty Images)](https://global.bing.com/th?id=OHR.LagoPehoe_FR-FR2057744557_UHD.jpg) 
