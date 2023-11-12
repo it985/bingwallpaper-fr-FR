@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-12 | [Lumières sur les rives de la rivière Sarayu à l'occasion de Diwali, Ayodhya, Inde (© SANJAY KANOJIA/AFP/Getty Images)](https://global.bing.com/th?id=OHR.DiwaliAyodhya_FR-FR5627036235_UHD.jpg) 
+
 2023-11-11 | [Drapeau français sous l’Arc de Triomphe, Paris, France (© Wiliam Perry/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.RemembranceDay_FR-FR5207828538_UHD.jpg) 
 
 2023-11-10 | [Parc national des Badlands, Dakota du Sud, États-Unis (© Grant Ordelheide/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BadlandsSunrise_FR-FR3335076381_UHD.jpg) 
