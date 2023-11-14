@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-14 | [Lupins de Russell sur le lac Tekapo, île du Sud, Nouvelle-Zélande (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.RussellLupines_FR-FR6503844522_UHD.jpg) 
+
 2023-11-13 | [Vieille oliveraie dans la Serra de Tramuntana, Majorque, Espagne (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.OliveOrchard_FR-FR6246633206_UHD.jpg) 
 
 2023-11-12 | [Lumières sur les rives de la rivière Sarayu à l'occasion de Diwali, Ayodhya, Inde (© SANJAY KANOJIA/AFP/Getty Images)](https://global.bing.com/th?id=OHR.DiwaliAyodhya_FR-FR5627036235_UHD.jpg) 
