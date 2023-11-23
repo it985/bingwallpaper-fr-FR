@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-23 | [Flamants roses au lever du soleil, Saintes-Maries-de-la-Mer, Parc Naturel Régional de Camargue, France (© Image via Shutterstock)](https://global.bing.com/th?id=OHR.FlamingosSaintesMaries_FR-FR7852991785_UHD.jpg) 
+
 2023-11-22 | [Parc national de Grand Teton, Wyoming, États-Unis (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.SnakeRiverTeton_FR-FR7464068281_UHD.jpg) 
 
 2023-11-21 | [Bébé phoque gris sur la plage de Norfolk, Angleterre (© Vince Burton/Minden Pictures)](https://global.bing.com/th?id=OHR.HelloSeal_FR-FR6889028849_UHD.jpg) 
