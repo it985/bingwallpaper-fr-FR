@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-24 | [Sentier "Hall of Mosses" dans la forêt pluviale de Hoh, Parc national olympique, Washington, États-Unis (© James Randklev/Getty Images)](https://global.bing.com/th?id=OHR.HallofMosses_FR-FR8097338401_UHD.jpg) 
+
 2023-11-23 | [Flamants roses au lever du soleil, Saintes-Maries-de-la-Mer, Parc Naturel Régional de Camargue, France (© Image via Shutterstock)](https://global.bing.com/th?id=OHR.FlamingosSaintesMaries_FR-FR7852991785_UHD.jpg) 
 
 2023-11-22 | [Parc national de Grand Teton, Wyoming, États-Unis (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.SnakeRiverTeton_FR-FR7464068281_UHD.jpg) 
