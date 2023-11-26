@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-26 | [Daim à Bradgate Park, Leicestershire, Angleterre (© Chris Bainbridge/Alamy)](https://global.bing.com/th?id=OHR.BradgateFallow_FR-FR5773797819_UHD.jpg) 
+
 2023-11-25 | [Tolède, Espagne (© Carlos Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.TajoRiver_FR-FR5340325022_UHD.jpg) 
 
 2023-11-24 | [Sentier "Hall of Mosses" dans la forêt pluviale de Hoh, Parc national olympique, Washington, États-Unis (© James Randklev/Getty Images)](https://global.bing.com/th?id=OHR.HallofMosses_FR-FR8097338401_UHD.jpg) 
