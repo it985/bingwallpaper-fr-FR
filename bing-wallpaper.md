@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-01 | [Iceberg, mer de Ross, Antarctique (© Michel Roggo/Minden Pictures)](https://global.bing.com/th?id=OHR.IcebergAntarctica_FR-FR1355397777_UHD.jpg) 
+
 2023-11-30 | [Cyprès chauves à l'étang de Boulieu, Isère, France (© photosimysia/Getty Images)](https://global.bing.com/th?id=OHR.BaldCypress_FR-FR6892436965_UHD.jpg) 
 
 2023-11-29 | [Arbre de Noël du Rockefeller Center, New York, États-Unis (© Jonathan Orenstein/Getty Images)](https://global.bing.com/th?id=OHR.TreeLighting_FR-FR6609307471_UHD.jpg) 
