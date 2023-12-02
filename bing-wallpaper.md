@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-02 | [Porte nord d'Angkor Thom, Parc archéologique d'Angkor, Cambodge (© Amazing Travel Lifestyle/Shutterstock)](https://global.bing.com/th?id=OHR.AngkorPark_FR-FR1945266452_UHD.jpg) 
+
 2023-12-01 | [Iceberg, mer de Ross, Antarctique (© Michel Roggo/Minden Pictures)](https://global.bing.com/th?id=OHR.IcebergAntarctica_FR-FR1355397777_UHD.jpg) 
 
 2023-11-30 | [Cyprès chauves à l'étang de Boulieu, Isère, France (© photosimysia/Getty Images)](https://global.bing.com/th?id=OHR.BaldCypress_FR-FR6892436965_UHD.jpg) 
