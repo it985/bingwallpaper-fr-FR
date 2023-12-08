@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-08 | [Fête des Lumières, œuvre d'art de Daniel Knipper, nommée Regards, en hommage aux victimes de l'attentat de Paris 2015, Lyon, France (© Baptiste de Izarra/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.LightFestivalLyon_FR-FR6128178223_UHD.jpg) 
+
 2023-12-07 | [Un matin brumeux dans les gorges du Verdon dans les Alpes-de-Haute-Provence en France (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.GrandCanyonVerdon_FR-FR3724391714_UHD.jpg) 
 
 2023-12-06 | [Le siège du Globe de la science et de l'innovation, Meyrin, Suisse (© Deyan Baric/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CERNCenter_FR-FR3434458144_UHD.jpg) 
