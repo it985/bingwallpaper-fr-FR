@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-11 | [Hiver dans les montagnes de Huangshan, Chine (© Hung Chung Chih/Shutterstock)](https://global.bing.com/th?id=OHR.MountainDayChina_FR-FR7601164917_UHD.jpg) 
+
 2023-12-10 | [Derniers rayons du soleil de la journée sur des dunes, Sahara, Algérie (© AWL Images/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.SaharaDunes_FR-FR6483454056_UHD.jpg) 
 
 2023-12-09 | [La Rocque Harbour, St. Clement, Île de Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.JerseyIsland_FR-FR4014866072_UHD.jpg) 
