@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-18 | [Station de ski du col des Saisies à l'aube, Beaufortain, Savoie, France (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Beaufortain_FR-FR7561012950_UHD.jpg) 
+
 2023-12-17 | [Jaseur boréal perché sur une branche, Canada (© Jim Cumming/Shutterstock)](https://global.bing.com/th?id=OHR.WinterWaxwings_FR-FR2348728059_UHD.jpg) 
 
 2023-12-16 | [Maisons de guilde de la Grand-Place, Bruxelles, Belgique (© Richard Taylor/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.GrandPlaceXmas_FR-FR1582369462_UHD.jpg) 
