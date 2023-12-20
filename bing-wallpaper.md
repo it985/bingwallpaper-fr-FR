@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-20 | [Barcelonnette aux portes des Hautes Vallées de l'Ubay, Alpes-de-Haute-Provence, France (© iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.XmasDesserts_FR-FR3582409300_UHD.jpg) 
+
 2023-12-19 | [Arbre de Noël sur la place du château, vieille ville, Varsovie, Pologne (© Panther Media GmbH/Alamy)](https://global.bing.com/th?id=OHR.WarsawChristmas_FR-FR2276037087_UHD.jpg) 
 
 2023-12-18 | [Station de ski du col des Saisies à l'aube, Beaufortain, Savoie, France (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Beaufortain_FR-FR7561012950_UHD.jpg) 
