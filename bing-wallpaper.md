@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-21 | [Ljubljana, Slovénie (© kasto80/Getty images)](https://global.bing.com/th?id=OHR.LjubljanaLights_FR-FR3780217998_UHD.jpg) 
+
 2023-12-20 | [Barcelonnette aux portes des Hautes Vallées de l'Ubay, Alpes-de-Haute-Provence, France (© iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.XmasDesserts_FR-FR3582409300_UHD.jpg) 
 
 2023-12-19 | [Arbre de Noël sur la place du château, vieille ville, Varsovie, Pologne (© Panther Media GmbH/Alamy)](https://global.bing.com/th?id=OHR.WarsawChristmas_FR-FR2276037087_UHD.jpg) 
