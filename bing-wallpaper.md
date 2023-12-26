@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-26 | [Lever de soleil hivernal à Dedham, Colchester, Angleterre (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.BoxingDaySunrise_FR-FR4883075706_UHD.jpg) 
+
 2023-12-25 | [Rennes courant dans la neige, Alaska, États-Unis (© Michael Quinton/Minden Pictures)](https://global.bing.com/th?id=OHR.CaribouChristmas_FR-FR4671431389_UHD.jpg) 
 
 2023-12-24 | [Place de l'hôtel de ville, Tartu, Estonie (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.EstoniaXmasEve_FR-FR4500138277_UHD.jpg) 
