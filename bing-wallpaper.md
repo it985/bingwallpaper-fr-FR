@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-29 | [Quartier Oud-West, Amsterdam, Pays-Bas (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.BlueAmsterdam_FR-FR8523535030_UHD.jpg) 
+
 2023-12-28 | [Baleine à bosse, baie de Disko, Groenland (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_FR-FR5304393284_UHD.jpg) 
 
 2023-12-26 | [Lever de soleil hivernal à Dedham, Colchester, Angleterre (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.BoxingDaySunrise_FR-FR4883075706_UHD.jpg) 
