@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-04 | [Pont du Golden Gate, San Francisco, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenGateLight_FR-FR0705317378_UHD.jpg) 
+
 2024-01-03 | [Coucher de soleil sur les lacs des Chéserys, Chamonix-Mont Blanc, France (© Smit/Shutterstock)](https://global.bing.com/th?id=OHR.Cheserys_FR-FR0495311297_UHD.jpg) 
 
 2024-01-02 | [Drapeaux de prière dans la vallée de Phobjikha, Bhoutan (© John Warburton-Lee/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.BhutanSolstice_FR-FR0006679350_UHD.jpg) 
