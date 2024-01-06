@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-06 | [Antilles françaises, Guadeloupe, brume sur le volcan de la Soufrière (© Walter Bibikow/Getty Images)](https://global.bing.com/th?id=OHR.GuadeloupeCarnival_FR-FR1231104335_UHD.jpg) 
+
 2024-01-05 | [Festival international de la glace et de la neige, Harbin, Chine (© WANG ZHAO/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HarbinFestival_FR-FR0937758437_UHD.jpg) 
 
 2024-01-04 | [Pont du Golden Gate, San Francisco, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenGateLight_FR-FR0705317378_UHD.jpg) 
