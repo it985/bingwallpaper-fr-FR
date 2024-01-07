@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-07 | [Karlu Karlu, Réserve de conservation des billes du diable, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.DevilsMarbles_FR-FR1418224441_UHD.jpg) 
+
 2024-01-06 | [Antilles françaises, Guadeloupe, brume sur le volcan de la Soufrière (© Walter Bibikow/Getty Images)](https://global.bing.com/th?id=OHR.GuadeloupeCarnival_FR-FR1231104335_UHD.jpg) 
 
 2024-01-05 | [Festival international de la glace et de la neige, Harbin, Chine (© WANG ZHAO/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HarbinFestival_FR-FR0937758437_UHD.jpg) 
