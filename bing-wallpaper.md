@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-09 | [Montgolfières au-dessus du Rio Grande, Albuquerque, Nouveau Mexique, États-Unis (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_FR-FR1975351459_UHD.jpg) 
+
 2024-01-08 | [Skieur au col de la Bernina, Grisons, Suisse (© Francesco Bergamaschi/Getty Images)](https://global.bing.com/th?id=OHR.BerninaPass_FR-FR1590880403_UHD.jpg) 
 
 2024-01-07 | [Karlu Karlu, Réserve de conservation des billes du diable, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.DevilsMarbles_FR-FR1418224441_UHD.jpg) 
