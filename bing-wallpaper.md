@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-11 | [Lynx boréal dans la neige (© Jan Stria/Shutterstock)](https://global.bing.com/th?id=OHR.LynxSnow_FR-FR2285365573_UHD.jpg) 
+
 2024-01-10 | [Sentier sur le rivage de Mylopotamos, Thessalie, Grèce (© Orestis Zoumpos/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.MilopotamosStairs_FR-FR2141657119_UHD.jpg) 
 
 2024-01-09 | [Montgolfières au-dessus du Rio Grande, Albuquerque, Nouveau Mexique, États-Unis (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_FR-FR1975351459_UHD.jpg) 
