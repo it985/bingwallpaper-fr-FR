@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-19 | [Parc national des lacs de Plitvice, Croatie (© Massimo_S8/Getty Images)](https://global.bing.com/th?id=OHR.PlitviceWinter_FR-FR4625546513_UHD.jpg) 
+
 2024-01-18 | [Pont Alexandre III au crépuscule, Paris, France  (© Sizun Eye/Getty Images)](https://global.bing.com/th?id=OHR.ParisBridge_FR-FR4526044555_UHD.jpg) 
 
 2024-01-17 | [Loup endormi dans le parc national de la forêt bavaroise, Allemagne (© Raimund Linke/Getty Images)](https://global.bing.com/th?id=OHR.SleepyWolf_FR-FR3759485122_UHD.jpg) 
