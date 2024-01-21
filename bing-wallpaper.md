@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-21 | [Écureuil roux, Pays-Bas (© Ernst Dirksen/Minden Pictures)](https://global.bing.com/th?id=OHR.SquirrelNetherlands_FR-FR5106085626_UHD.jpg) 
+
 2024-01-20 | [Château de Castelnaud avant le lever du soleil, Dordogne, France (© Gareth Kirkland/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Castlenaud_FR-FR4922909582_UHD.jpg) 
 
 2024-01-19 | [Parc national des lacs de Plitvice, Croatie (© Massimo_S8/Getty Images)](https://global.bing.com/th?id=OHR.PlitviceWinter_FR-FR4625546513_UHD.jpg) 
