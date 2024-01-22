@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-22 | [Lever du soleil hivernal, phare de Santa Cruz, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SantaCruzSunrise_FR-FR1541398588_UHD.jpg) 
+
 2024-01-21 | [Écureuil roux, Pays-Bas (© Ernst Dirksen/Minden Pictures)](https://global.bing.com/th?id=OHR.SquirrelNetherlands_FR-FR5106085626_UHD.jpg) 
 
 2024-01-20 | [Château de Castelnaud avant le lever du soleil, Dordogne, France (© Gareth Kirkland/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Castlenaud_FR-FR4922909582_UHD.jpg) 
