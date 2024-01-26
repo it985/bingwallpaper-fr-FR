@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-26 | [La chouette épervière (© Remo Savisaar/Alamy)](https://global.bing.com/th?id=OHR.HawkOwl_FR-FR1707000792_UHD.jpg) 
+
 2024-01-25 | [Ruines de l'église St. Dwynwen, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Photos by R A Kearton/Getty Images)](https://global.bing.com/th?id=OHR.DwynwensDay_FR-FR7589802554_UHD.jpg) 
 
 2024-01-24 | [Plage de Diamant, Islande (© Rachid Dahnoun/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.IcelandBeach_FR-FR6659305695_UHD.jpg) 
