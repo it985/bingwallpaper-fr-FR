@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-28 | [Renard roux, Lac des Truites, Soultzeren, Alsace, France (© gmo-pixel/500px/Getty Images)](https://global.bing.com/th?id=OHR.SnowFox_FR-FR3113896350_UHD.jpg) 
+
 2024-01-27 | [Palais de glace du Carnaval d’hiver de Saint Paul, Minnesota, États-Unis (© Joe Mamer Photography/Alamy)](https://global.bing.com/th?id=OHR.WinterCarnival_FR-FR5345279239_UHD.jpg) 
 
 2024-01-26 | [La chouette épervière (© Remo Savisaar/Alamy)](https://global.bing.com/th?id=OHR.HawkOwl_FR-FR1707000792_UHD.jpg) 
