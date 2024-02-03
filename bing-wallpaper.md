@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-03 | [Grand Canal et basilique Santa Maria della Salute, Venise, Italie (© RudyBalasko/Getty Images)](https://global.bing.com/th?id=OHR.VeniceCarnival_FR-FR7084522294_UHD.jpg) 
+
 2024-02-02 | [L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)](https://global.bing.com/th?id=OHR.Chandeleur_FR-FR6465418601_UHD.jpg) 
 
 2024-02-01 | [Phare de Sassnitz, Rügen, Mecklembourg-Poméranie-Occidentale,  Allemagne (© Christian Back/eStock)](https://global.bing.com/th?id=OHR.HalbinselJasmund_FR-FR6083504122_UHD.jpg) 
