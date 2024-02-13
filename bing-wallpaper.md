@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-13 | [Perles de Mardi Gras dans le quartier de Marigny, Nouvelle-Orléans, États-Unis (© Erik Pronske Photography/Getty Images)](https://global.bing.com/th?id=OHR.MarignyBeads_FR-FR2441069115_UHD.jpg) 
+
 2024-02-12 | [Tortues géantes, Volcan Alcedo, île d'Isabela, Galápagos, Équateur (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.GiantTortoise_FR-FR1778987386_UHD.jpg) 
 
 2024-02-11 | [Chora, île de Folegandros, Cyclades, Grèce (© Francesco Riccardo Iacomino/Getty Images)](https://global.bing.com/th?id=OHR.FolegandrosGreece_FR-FR1575425081_UHD.jpg) 
