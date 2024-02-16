@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-16 | [Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)](https://global.bing.com/th?id=OHR.SkiResort_FR-FR5956789786_UHD.jpg) 
+
 2024-02-15 | [Mère hippopotame et son petit, parc national de South Luangwa, Zambie (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.HippopotamusDay_FR-FR5524617155_UHD.jpg) 
 
 2024-02-14 | [Grue du Japon s'inclinant devant son compagnon à Hokkaido, Japon (© Steve Bloom Images/Alamy)](https://global.bing.com/th?id=OHR.BowingCrane_FR-FR5228524278_UHD.jpg) 
