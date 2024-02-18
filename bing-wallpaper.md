@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-18 | [Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.CarnavalTenerife_FR-FR6743804203_UHD.jpg) 
+
 2024-02-17 | [Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)](https://global.bing.com/th?id=OHR.BrightonBoxes_FR-FR1148207790_UHD.jpg) 
 
 2024-02-16 | [Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)](https://global.bing.com/th?id=OHR.SkiResort_FR-FR5956789786_UHD.jpg) 
