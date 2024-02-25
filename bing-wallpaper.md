@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-25 | [Amandiers en fleurs, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AlmondBloom_FR-FR1944191852_UHD.jpg) 
+
 2024-02-24 | [Le Ballon d'Alsace, Territoire de Belfort, France (© VUANO Tristan/Hemis.fr/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.AgriculturalShow_FR-FR2506485920_UHD.jpg) 
 
 2024-02-23 | [Monastère de Haghartsin, parc national de Dilijan, Arménie (© Alexey Kharitonov/Shutterstock)](https://global.bing.com/th?id=OHR.HaghartsinMonastery_FR-FR1636518850_UHD.jpg) 
