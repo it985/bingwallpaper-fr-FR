@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-26 | [Parc national du Grand Canyon, Arizona, États-Unis (© Jeremy Janus/Getty Images)](https://global.bing.com/th?id=OHR.GrandCanyonWinter_FR-FR2711943454_UHD.jpg) 
+
 2024-02-25 | [Amandiers en fleurs, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AlmondBloom_FR-FR1944191852_UHD.jpg) 
 
 2024-02-24 | [Le Ballon d'Alsace, Territoire de Belfort, France (© VUANO Tristan/Hemis.fr/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.AgriculturalShow_FR-FR2506485920_UHD.jpg) 
