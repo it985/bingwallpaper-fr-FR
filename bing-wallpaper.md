@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-02 | [Modica, Sicile, Italie  (© Sandro Bisaro/Getty Images)](https://global.bing.com/th?id=OHR.ModicaItaly_FR-FR5433904766_UHD.jpg) 
+
 2024-03-01 | [Blaireau européen (© Milan Zygmunt/Shutterstock)](https://global.bing.com/th?id=OHR.Badger_FR-FR5236947017_UHD.jpg) 
 
 2024-02-29 | [Écureuil roux d'Europe (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.LeapingSquirrel_FR-FR3290902737_UHD.jpg) 
