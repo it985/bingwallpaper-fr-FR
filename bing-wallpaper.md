@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-05 | [Rond-point et autoroute à Bangkok, Thaïlande (© Avigator Fortuner/Shutterstock)](https://global.bing.com/th?id=OHR.BangkokCircle_FR-FR6646035887_UHD.jpg) 
+
 2024-03-04 | [Volcan Arenal observé depuis Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)](https://global.bing.com/th?id=OHR.ArenalCostaRica_FR-FR6380413439_UHD.jpg) 
 
 2024-03-03 | [Léopard perché sur un arbre, Parc national Kruger, Afrique du Sud (© Tonino De Marco/Minden Pictures)](https://global.bing.com/th?id=OHR.KrugerLeopard_FR-FR6172062962_UHD.jpg) 
