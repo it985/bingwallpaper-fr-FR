@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-10 | [La Mer de Glace, Chamonix, massif du Mont-Blanc, Haute-Savoie, France (© Hagenmuller Jean-François/Hemis.fr)](https://global.bing.com/th?id=OHR.MontBlancGlacier_FR-FR3426443690_UHD.jpg) 
+
 2024-03-09 | [Région sauvage de Bisti/De-Na-Zin, Nouveau-Mexique, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BistiBlue_FR-FR0934555196_UHD.jpg) 
 
 2024-03-08 | [Musée Tate Modern illuminé à l'occasion de la Journée internationale des femmes, Londres, Angleterre (© Stephen Chung/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TateLightUp_FR-FR0418217610_UHD.jpg) 
