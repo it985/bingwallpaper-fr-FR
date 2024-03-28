@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-28 | [Cerisiers en fleurs à Shanghai, Chine (© Yaorusheng/Getty Images)](https://global.bing.com/th?id=OHR.ShanghaiBlossoms_FR-FR9000032992_UHD.jpg) 
+
 2024-03-27 | [Théâtre Colón à Buenos Aires, Argentine (© Wei Hao Ho/Alamy)](https://global.bing.com/th?id=OHR.TeatroColon_FR-FR8848862049_UHD.jpg) 
 
 2024-03-26 | [Eau de mer en cascade sur un ancien récif corallien, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.HangRaiVietnam_FR-FR8788707911_UHD.jpg) 
