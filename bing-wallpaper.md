@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-30 | [Paresseux à gorge brune dormant dans un arbre cécropia, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.SleepySloth_FR-FR0657179763_UHD.jpg) 
+
 2024-03-29 | [Phare de South Stack au coucher du soleil, Holyhead, Pays de Galles, Royaume-Uni (© mariotlr/Getty Images)](https://global.bing.com/th?id=OHR.SouthStackLight_FR-FR9101863660_UHD.jpg) 
 
 2024-03-28 | [Cerisiers en fleurs à Shanghai, Chine (© Yaorusheng/Getty Images)](https://global.bing.com/th?id=OHR.ShanghaiBlossoms_FR-FR9000032992_UHD.jpg) 
