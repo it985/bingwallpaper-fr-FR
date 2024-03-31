@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-01 | [L'œuvre « Vanishing Point » de l'artiste de rue français JR sur la façade du Palais Farnèse, Rome, Italie (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_FR-FR9572652511_UHD.jpg) 
+
 2024-03-30 | [Paresseux à gorge brune dormant dans un arbre cécropia, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.SleepySloth_FR-FR0657179763_UHD.jpg) 
 
 2024-03-29 | [Phare de South Stack au coucher du soleil, Holyhead, Pays de Galles, Royaume-Uni (© mariotlr/Getty Images)](https://global.bing.com/th?id=OHR.SouthStackLight_FR-FR9101863660_UHD.jpg) 
