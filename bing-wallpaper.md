@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-05 | [Les Bahamas vues depuis la Station spatiale internationale (© NASA)](https://global.bing.com/th?id=OHR.BahamasSpace_FR-FR2737935866_UHD.jpg) 
+
 2024-04-04 | [Troupeau de cobes de lechwe rouge traversant la plaine marécageuse du delta de l'Okavango, Botswana (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.AntelopeBotswana_FR-FR1380338577_UHD.jpg) 
 
 2024-04-03 | [Château de Chambord, Vallée de la Loire, France (© Susanne Kremer/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.ChambordCastle_FR-FR1183220484_UHD.jpg) 
