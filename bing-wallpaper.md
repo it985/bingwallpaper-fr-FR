@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-14 | [Coucher de soleil sur la plage de Bowling Ball, Californie, États-Unis (© Melo Qiao/Getty Images)](https://global.bing.com/th?id=OHR.BowlingBallCali_FR-FR7572590133_UHD.jpg) 
+
 2024-04-13 | [Vue nocturne depuis le Rhône sur la ville de Lyon avec le Grand Hôtel-Dieu et la cathédrale de Fourvière, France (© Frédéric Prochasson/Getty Images)](https://global.bing.com/th?id=OHR.LyonGastronomy_FR-FR6987706290_UHD.jpg) 
 
 2024-04-12 | [Lumière du soir sur la North Window avec l'arche Turret en fond, Parc national des Arches, Utah, États-Unis (© Anthony Heflin/Shutterstock)](https://global.bing.com/th?id=OHR.SunsetArchesNP_FR-FR6671864096_UHD.jpg) 
