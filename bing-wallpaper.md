@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-15 | [Le RedBall Project, œuvre d’art itinérante, Gare centrale, Anvers, Belgique (© Brit Worgan/Getty Images)](https://global.bing.com/th?id=OHR.RedBallBelgium_FR-FR7736092564_UHD.jpg) 
+
 2024-04-14 | [Coucher de soleil sur la plage de Bowling Ball, Californie, États-Unis (© Melo Qiao/Getty Images)](https://global.bing.com/th?id=OHR.BowlingBallCali_FR-FR7572590133_UHD.jpg) 
 
 2024-04-13 | [Vue nocturne depuis le Rhône sur la ville de Lyon avec le Grand Hôtel-Dieu et la cathédrale de Fourvière, France (© Frédéric Prochasson/Getty Images)](https://global.bing.com/th?id=OHR.LyonGastronomy_FR-FR6987706290_UHD.jpg) 
