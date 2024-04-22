@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-23 | [Bibliothèque du Trinity College de Dublin, Irlande (© Lukas Bischoff/Getty Images)](https://global.bing.com/th?id=OHR.TrinityDublin_FR-FR6932470359_UHD.jpg) 
+
 2024-04-22 | [Tortue verte, San Diego, Californie, États-Unis (© Ralph Pace/Minden Pictures)](https://global.bing.com/th?id=OHR.EarthDayTurtle_FR-FR6121121892_UHD.jpg) 
 
 2024-04-21 | [Îles Chausey, Normandie, France (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.ChauseyIslands_FR-FR2335923449_UHD.jpg) 
