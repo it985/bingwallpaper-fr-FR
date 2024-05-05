@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-06 | [Les Roaches, Peak District, Angleterre (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.TheRoachesPeakDistrict_FR-FR7206874137_UHD.jpg) 
+
 2024-05-05 | [Colonnade à San Miguel de Allende, Guanajuato, Mexique (© Mint Images/Getty Images)](https://global.bing.com/th?id=OHR.SanMiguelAllende_FR-FR6896201862_UHD.jpg) 
 
 2024-05-04 | [Ruines d'un ancien monastère sur l'île de Skellig Michael, Irlande (© MNStudio/Getty Images)](https://global.bing.com/th?id=OHR.JediMonastery_FR-FR5584493492_UHD.jpg) 
