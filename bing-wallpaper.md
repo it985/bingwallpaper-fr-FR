@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-26 | [Monte Carlo au crépuscule, Monaco (©  StockByM/Getty Images)](https://global.bing.com/th?id=OHR.MonacoGP_FR-FR9314919538_UHD.jpg) 
+
 2024-05-25 | [Ksar d’Aït Benhaddou, Maroc (© Grant Faint/Getty Images)](https://global.bing.com/th?id=OHR.MoroccoBenhaddou_FR-FR8548629295_UHD.jpg) 
 
 2024-05-24 | [Canyon d'Anisclo, Parc national d'Ordesa et Monte Perdido, Huesca, Espagne (© Marisa Estivill/Shutterstock)](https://global.bing.com/th?id=OHR.OrdesaNationalPark_FR-FR8382940670_UHD.jpg) 
