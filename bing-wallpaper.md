@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-27 | [Bébé tortue olivâtre quittant le nid pour rejoindre l'océan, plage de Remire-Montjoly, Cayenne, Guyanne (© Brusini Aurélien/hemis.fr)](https://global.bing.com/th?id=OHR.Guiana_FR-FR0757423981_UHD.jpg) 
+
 2024-05-26 | [Monte Carlo au crépuscule, Monaco (©  StockByM/Getty Images)](https://global.bing.com/th?id=OHR.MonacoGP_FR-FR9314919538_UHD.jpg) 
 
 2024-05-25 | [Ksar d’Aït Benhaddou, Maroc (© Grant Faint/Getty Images)](https://global.bing.com/th?id=OHR.MoroccoBenhaddou_FR-FR8548629295_UHD.jpg) 
