@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-02 | [Phare de Ploumanac'h, Côtes-d'Armor, France (© Christian Handl/Getty Images)](https://global.bing.com/th?id=OHR.MenRuz_FR-FR1588544538_UHD.jpg) 
+
 2024-06-01 | [Le Civic Center illuminé pour la San Francisco Pride, Californie, États-Unis (© Josh Edelson/AFP via Getty Images)](https://global.bing.com/th?id=OHR.PrideMonthSF_FR-FR1847983334_UHD.jpg) 
 
 2024-05-31 | [Gunnerside, Swaledale, Parc national des Yorkshire Dales, Angleterre (© Derek Croucher/Alamy)](https://global.bing.com/th?id=OHR.YorkshireDalesNP_FR-FR1030266814_UHD.jpg) 
