@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-07 | [Famille de baleines à bosse, Dutch Harbor, Alaska, États-Unis (© Jude Newkirk/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.HumpbackFamily_FR-FR3059562315_UHD.jpg) 
+
 2024-06-06 | [Monument Les Braves à Omaha Beach, Saint-Laurent-sur-Mer, Normandie (© Christopher Furlong/Getty Images)](https://global.bing.com/th?id=OHR.LesBravesNormandy_FR-FR2799777837_UHD.jpg) 
 
 2024-06-05 | [Parc National de Masoala à Madagascar (© Dennis van de Water/Shutterstock)](https://global.bing.com/th?id=OHR.MadagascarRiver_FR-FR2602472406_UHD.jpg) 
