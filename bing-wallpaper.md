@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-11 | [L'oryx gazelle dans la savane, Botswana (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GemsbokBotswana_FR-FR4043133584_UHD.jpg) 
+
 2024-06-10 | [Osaka la nuit, Japon (© wichianduangsri/Getty Images)](https://global.bing.com/th?id=OHR.OsakaNight_FR-FR3842044387_UHD.jpg) 
 
 2024-06-09 | [Réserve de la biosphère et parc naturel de Bardenas Reales, Navarre, Espagne (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BardenasBiosphere_FR-FR3427127743_UHD.jpg) 
