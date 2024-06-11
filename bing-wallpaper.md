@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-12 | [Voie lactée au-dessus du parc national de Big Bend, Texas, États-Unis (© wisanuboonrawd/Adobe Stock)](https://global.bing.com/th?id=OHR.BigBendMilkyWay_FR-FR4230024049_UHD.jpg) 
+
 2024-06-11 | [L'oryx gazelle dans la savane, Botswana (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GemsbokBotswana_FR-FR4043133584_UHD.jpg) 
 
 2024-06-10 | [Osaka la nuit, Japon (© wichianduangsri/Getty Images)](https://global.bing.com/th?id=OHR.OsakaNight_FR-FR3842044387_UHD.jpg) 
