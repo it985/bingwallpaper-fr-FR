@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-17 | [Fort Cigogne, archipel des Glénans, Bretagne (© Gerard SIOEN/Getty Images)](https://global.bing.com/th?id=OHR.FortCigogne_FR-FR4151283347_UHD.jpg) 
+
 2024-06-16 | [Renard roux mâle et son renardeau, Washington, États-Unis (© Chase Dekker/Minden Pictures)](https://global.bing.com/th?id=OHR.RedFoxDad_FR-FR3371995571_UHD.jpg) 
 
 2024-06-15 | [Surfeur sur une vague à Nazaré, Portugal (© Rui Caria/Getty Images)](https://global.bing.com/th?id=OHR.NazareWave_FR-FR3133568548_UHD.jpg) 
