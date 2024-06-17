@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-18 | [Champs de lupins et église au lever du soleil, péninsule de Snæfellsnes, Islande (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.LupinIceland_FR-FR4349851245_UHD.jpg) 
+
 2024-06-17 | [Fort Cigogne, archipel des Glénans, Bretagne (© Gerard SIOEN/Getty Images)](https://global.bing.com/th?id=OHR.FortCigogne_FR-FR4151283347_UHD.jpg) 
 
 2024-06-16 | [Renard roux mâle et son renardeau, Washington, États-Unis (© Chase Dekker/Minden Pictures)](https://global.bing.com/th?id=OHR.RedFoxDad_FR-FR3371995571_UHD.jpg) 
