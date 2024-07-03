@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-04 | [Abbaye Notre-Dame de Sénanque, Gordes, Provence (© Brzozowska/Getty Images)](https://global.bing.com/th?id=OHR.SenanqueAbbey_FR-FR3993123153_UHD.jpg) 
+
 2024-07-03 | [Famille de suricates (© anetapics/Shutterstock)](https://global.bing.com/th?id=OHR.MeerkatManor_FR-FR8114816201_UHD.jpg) 
 
 2024-07-02 | [Ancienne ville romaine de Italica à Santiponce, Séville,  Espagne (© Moses Palermo/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ItalicaRuins_FR-FR7838371593_UHD.jpg) 
