@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-08 | [Pont de pierre, Bordeaux (© SergiyN/Getty Images)](https://global.bing.com/th?id=OHR.PontBordeaux_FR-FR0361302965_UHD.jpg) 
+
 2024-07-07 | [Rizières en terrasses de Mu Cang Chaine, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://global.bing.com/th?id=OHR.YenBaiTerraces_FR-FR9073206235_UHD.jpg) 
 
 2024-07-06 | [Château de Conwy surplombant la rivière Conwy, Pays de Galles, Royaume-Uni (© David Chapman/Alamy)](https://global.bing.com/th?id=OHR.ConwyRiver_FR-FR8883858197_UHD.jpg) 
