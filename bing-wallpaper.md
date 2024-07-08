@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-09 | [Parc national de Talampaya, province de La Rioja, Argentine (© Gonzalo Azumendi/Getty Images)](https://global.bing.com/th?id=OHR.TalampayaNP_FR-FR0885621562_UHD.jpg) 
+
 2024-07-08 | [Pont de pierre, Bordeaux (© SergiyN/Getty Images)](https://global.bing.com/th?id=OHR.PontBordeaux_FR-FR0361302965_UHD.jpg) 
 
 2024-07-07 | [Rizières en terrasses de Mu Cang Chaine, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://global.bing.com/th?id=OHR.YenBaiTerraces_FR-FR9073206235_UHD.jpg) 
