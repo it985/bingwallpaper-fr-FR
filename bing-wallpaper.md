@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-16 | [Site néolithique de Skara Brae, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.AncientOrkney_FR-FR2608784328_UHD.jpg) 
+
 2024-07-15 | [Parc de Tateishi, préfecture de Kanagawa, Japon (© blew_s/Shutterstock)](https://global.bing.com/th?id=OHR.TateishiPark_FR-FR2256380829_UHD.jpg) 
 
 2024-07-14 | [La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)](https://global.bing.com/th?id=OHR.BastilleDayParis_FR-FR2037587707_UHD.jpg) 
