@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-17 | [Ville médiévale de Rothenburg ob der Tauber, Allemagne (© kanuman/Getty Images)](https://global.bing.com/th?id=OHR.MedievalRothenburg_FR-FR2962331926_UHD.jpg) 
+
 2024-07-16 | [Site néolithique de Skara Brae, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.AncientOrkney_FR-FR2608784328_UHD.jpg) 
 
 2024-07-15 | [Parc de Tateishi, préfecture de Kanagawa, Japon (© blew_s/Shutterstock)](https://global.bing.com/th?id=OHR.TateishiPark_FR-FR2256380829_UHD.jpg) 
