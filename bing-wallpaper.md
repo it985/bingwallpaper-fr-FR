@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-24 | [Troupeau de moutons de Swaledale dans le Yorkshire du Nord, Angleterre (© R A Kearton/Getty Images)](https://global.bing.com/th?id=OHR.SheepCousins_FR-FR2246016593_UHD.jpg) 
+
 2024-07-23 | [Château de Méthoni, Messénie, Grèce (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_FR-FR1765128924_UHD.jpg) 
 
 2024-07-22 | [Coucher de soleil sur la plage de l'Anse Champagne à Saint-François, Guadeloupe, Caraïbes (© Fyletto/Getty Images)](https://global.bing.com/th?id=OHR.SaintFrancois_FR-FR9354176013_UHD.jpg) 
