@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-25 | [Chemin forestier dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© putmanphoto/Getty Images)](https://global.bing.com/th?id=OHR.SmokyMountainTrail_FR-FR2588316883_UHD.jpg) 
+
 2024-07-24 | [Troupeau de moutons de Swaledale dans le Yorkshire du Nord, Angleterre (© R A Kearton/Getty Images)](https://global.bing.com/th?id=OHR.SheepCousins_FR-FR2246016593_UHD.jpg) 
 
 2024-07-23 | [Château de Méthoni, Messénie, Grèce (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_FR-FR1765128924_UHD.jpg) 
