@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-27 | [Vignobles de la vallée de la Moselle, Rhénanie-Palatinat, Allemagne (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.RhinelandVineyards_FR-FR9994594641_UHD.jpg) 
+
 2024-07-26 | [Coucher de soleil sur la Seine avec la Conciergerie, Paris (© Britus/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.ParisOlympicGames_FR-FR9795678627_UHD.jpg) 
 
 2024-07-25 | [Chemin forestier dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© putmanphoto/Getty Images)](https://global.bing.com/th?id=OHR.SmokyMountainTrail_FR-FR2588316883_UHD.jpg) 
