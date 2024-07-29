@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-30 | [Impala et pic-bœuf à bec rouge, Afrique du Sud (© Matrishva Vyas/Getty Images)](https://global.bing.com/th?id=OHR.ImpalaOxpecker_FR-FR0733173703_UHD.jpg) 
+
 2024-07-29 | [Tigres dans le parc national de Jim Corbett, Uttarakhand, Inde (© Sourabh Bharti/Getty Images)](https://global.bing.com/th?id=OHR.CorbettTigers_FR-FR0494384633_UHD.jpg) 
 
 2024-07-28 | [Cabines de bain sur la plage, comté de Scanie, Suède (© Martin Wahlborg/Getty Images)](https://global.bing.com/th?id=OHR.BeachHutsSweden_FR-FR0229761588_UHD.jpg) 
