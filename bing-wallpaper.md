@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-04 | [San Gimignano, Sienne, Toscane, Italie (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.GimignanoTuscany_FR-FR0891435828_UHD.jpg) 
+
 2024-08-03 | [Faon chevreuil, Normandie (© slowmotiongli/Getty Images)](https://global.bing.com/th?id=OHR.SummerDeer_FR-FR3909354454_UHD.jpg) 
 
 2024-08-02 | [Trunk Bay, parc national des îles Vierges américaines, Saint John (© cdwheatley/Getty Images)](https://global.bing.com/th?id=OHR.TrunkBay_FR-FR3550149082_UHD.jpg) 
