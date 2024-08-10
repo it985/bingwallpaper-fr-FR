@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-11 | [Sentier en bois menant au lac Kennedy, île de Vancouver, Colombie-Britannique, Canada (© EB Adventure Photography/Shutterstock)](https://global.bing.com/th?id=OHR.TofinoVancouver_FR-FR7602637860_UHD.jpg) 
+
 2024-08-10 | [Parc national de Joshua Tree, Californie, États-Unis (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JoshuaTreeNP_FR-FR7411748387_UHD.jpg) 
 
 2024-08-09 | [Ruine inca de Sacsayhuamán près de Cusco, Pérou (© SL_Photography/Getty Images)](https://global.bing.com/th?id=OHR.IncaRuinPeru_FR-FR7059028916_UHD.jpg) 
