@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-13 | [Citadelle de Port Louis, Lorient, Morbihan, France (© Philippe TURPIN/Getty Images)](https://global.bing.com/th?id=OHR.LorientCelticFestival_FR-FR2950316084_UHD.jpg) 
+
 2024-08-12 | [Éléphants d'Afrique, parc national d'Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)](https://global.bing.com/th?id=OHR.ElephantsAmboseli_FR-FR7826915061_UHD.jpg) 
 
 2024-08-11 | [Sentier en bois menant au lac Kennedy, île de Vancouver, Colombie-Britannique, Canada (© EB Adventure Photography/Shutterstock)](https://global.bing.com/th?id=OHR.TofinoVancouver_FR-FR7602637860_UHD.jpg) 
