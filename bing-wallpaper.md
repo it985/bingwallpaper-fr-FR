@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-17 | [Phare d'Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://global.bing.com/th?id=OHR.AlfanzinaLighthouse_FR-FR9974749595_UHD.jpg) 
+
 2024-08-16 | [Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)](https://global.bing.com/th?id=OHR.ButterflyFlower_FR-FR4834672236_UHD.jpg) 
 
 2024-08-15 | [Grotte de Hang Son Doong, Parc national de Phong Nha-Ke Bang, Vietnam (© Geng Xu/Getty Images)](https://global.bing.com/th?id=OHR.HangCave_FR-FR1926415619_UHD.jpg) 
