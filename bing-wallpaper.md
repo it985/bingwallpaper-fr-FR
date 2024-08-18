@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-19 | [Bufadero de la Garita, Grande Canarie, Espagne (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.RegataSanGines_FR-FR9512852239_UHD.jpg) 
+
 2024-08-18 | [Quai de Huntington Beach, Californie, États-Unis (© Stan Moniz Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HuntingtonBeach_FR-FR9728078384_UHD.jpg) 
 
 2024-08-17 | [Phare d'Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://global.bing.com/th?id=OHR.AlfanzinaLighthouse_FR-FR9974749595_UHD.jpg) 
