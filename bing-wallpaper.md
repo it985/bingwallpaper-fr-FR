@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-21 | [Fou de Grant, île Wolf, îles Galápagos, Équateur (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.NazcaBooby_FR-FR8760221120_UHD.jpg) 
+
 2024-08-20 | [Lever de soleil dans le parc national de Grand Teton, Wyoming, États-Unis (© Kurt Budliger/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.TetonSunrise_FR-FR5273170982_UHD.jpg) 
 
 2024-08-19 | [Bufadero de la Garita, Grande Canarie, Espagne (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.RegataSanGines_FR-FR9512852239_UHD.jpg) 
