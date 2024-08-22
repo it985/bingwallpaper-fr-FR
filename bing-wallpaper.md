@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-23 | [Ruines du temple de Prasat Phanom Rung, province de Buriram, Thaïlande (© Banjongseal324/Getty Images)](https://global.bing.com/th?id=OHR.PrasatPhanom_FR-FR7783025478_UHD.jpg) 
+
 2024-08-22 | [Vue aérienne d’Ocean City au lever du soleil, Maryland, États-Unis (© Kevin Olson/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.OceanCityMD_FR-FR8531122070_UHD.jpg) 
 
 2024-08-21 | [Fou de Grant, île Wolf, îles Galápagos, Équateur (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.NazcaBooby_FR-FR8760221120_UHD.jpg) 
