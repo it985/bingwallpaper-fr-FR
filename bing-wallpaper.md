@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-25 | [Reflet du ciel sur le lac Blanc, Alpes françaises, Monte Bianco en arrière-plan, Chamonix (© Smitt/Getty Image)](https://global.bing.com/th?id=OHR.TrailMontBlanc_FR-FR5602937641_UHD.jpg) 
+
 2024-08-24 | [Katahdin Woods and Waters National Monument, comté de Penobscot, Maine, États-Unis (© Cavan Images/Alamy)](https://global.bing.com/th?id=OHR.KatahdinWoods_FR-FR8416030061_UHD.jpg) 
 
 2024-08-23 | [Ruines du temple de Prasat Phanom Rung, province de Buriram, Thaïlande (© Banjongseal324/Getty Images)](https://global.bing.com/th?id=OHR.PrasatPhanom_FR-FR7783025478_UHD.jpg) 
