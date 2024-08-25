@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-26 | [Réserve naturelle nationale de l'atoll de Palmyra, océan Pacifique central (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PalmyraAtoll_FR-FR9486167153_UHD.jpg) 
+
 2024-08-25 | [Reflet du ciel sur le lac Blanc, Alpes françaises, Monte Bianco en arrière-plan, Chamonix (© Smitt/Getty Image)](https://global.bing.com/th?id=OHR.TrailMontBlanc_FR-FR5602937641_UHD.jpg) 
 
 2024-08-24 | [Katahdin Woods and Waters National Monument, comté de Penobscot, Maine, États-Unis (© Cavan Images/Alamy)](https://global.bing.com/th?id=OHR.KatahdinWoods_FR-FR8416030061_UHD.jpg) 
