@@ -35,8 +35,6 @@ jobs:
           ls -la
           echo "Listing files in the docs directory:"
           ls -la docs
-          echo "Listing files in the fr-fr directory:"
-          ls -la fr-fr
       - name: current date
         run: date
       - name: Build with Maven
