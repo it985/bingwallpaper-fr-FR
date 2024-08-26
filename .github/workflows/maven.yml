@@ -68,7 +68,6 @@ jobs:
           git add bing-wallpaper.md
           git add picture/*
           git add docs/*
-          git add fr-fr/*
           git commit -m "update readme.md" || echo "No changes to commit"
 
       - name: Push changes
