@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-23 | [Théâtre du Globe, Londres, Angleterre (�� Peter Dazeley/Getty Images)](https://cn.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-23 | [Théâtre du Globe, Londres, Angleterre (© Peter Dazeley/Getty Images)](https://cn.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-22 | [Grand Prismatic Spring, parc national de Yellowstone, Wyoming, États-Unis (© Ajith Kumar/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneSpring_FR-FR1648362010_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
