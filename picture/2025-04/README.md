@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-04)
-![](https://cn.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&w=1000)Today: [Théâtre du Globe, Londres, Angleterre (�� Peter Dazeley/Getty Images)](https://cn.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&w=1000)Today: [Théâtre du Globe, Londres, Angleterre (© Peter Dazeley/Getty Images)](https://cn.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-04-23 [download 4k](https://cn.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-04-23 [download 4k](https://cn.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.YellowstoneSpring_FR-FR1648362010_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-04-22 [download 4k](https://cn.bing.com/th?id=OHR.YellowstoneSpring_FR-FR1648362010_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
